@@ -1,0 +1,1 @@
+Artículo Primero. Se abroga la Ley Sobre Fundaciones y Asociaciones de Beneficencia e Instrucción Pública en el Estado de Sinaloa, de treinta de marzo de 1920, y se derogan todas aquellas disposiciones que se opongan a la presente ley.

@@ -1,0 +1,1 @@
+Artículo Tercero. La sesión de integración del Consejo Directivo deberá celebrarse dentro de los treinta días naturales siguientes a la publicación de la presente ley. Una vez integrado, el Consejo procederá a la designación del Presidente de la Junta conforme lo dispuesto por el artículo 73.

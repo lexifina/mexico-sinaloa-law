@@ -1,0 +1,1 @@
+Artículo Segundo. Para la conformación del primer Consejo Directivo, el registro a que hace referencia el artículo 74 de esta ley se llevará a cabo ante la Secretaría General de Gobierno del Estado, la que organizará y vigilará el proceso electoral.
