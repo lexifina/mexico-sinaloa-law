@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE NOVIEMBRE DE 1930)
+Art. 89 B. La base de los ingresos de los Municipios del Estado será el producto de sus bienes propios y de los servicios públicos que suministren cuando éstos no deban prestarse gratuitamente; sólo cuando los ingresos resultantes sean insuficientes, el Congreso del Estado autorizará a los Municipios por medio de una Ley general de ingresos municipales a cobrar impuestos sobre ramos que no graven el Gobierno del Estado.

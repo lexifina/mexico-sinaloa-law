@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE NOVIEMBRE DE 1930)
+Art. 89 C. Para compensar a los Ayuntamientos la prohibición que tienen de fijar impuestos sobre las mismas fuentes que se reserva el Estado, éste cobrará directamente un adicional sobre todos sus impuestos, que destinará a los Municipios; dicho adicional subsistirá mientras subsista la insuficiencia a que se refiere el artículo anterior. Unicamente no se cobrará el repetido adicional, sobre la minería y otros ramos en que la Federación fije determinado límite de imposición.
