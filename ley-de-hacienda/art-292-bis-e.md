@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 12 DE OCTUBRE DE 1990)
+ART. 292 Bis E.- Son obligaciones de los contribuyentes de este impuesto, además de las señaladas en los Artículos que anteceden:
+I.- Presentar aviso de inscripción ante la Oficina Recaudadora de Rentas del Estado correspondiente a su domicilio, dentro de los diez días siguientes a la fecha en que inicien las actividades por las cuales deban efectuar el pago del impuesto a que se refiere este capítulo, haciendo uso de las formas oficialmente aprobadas.
+Las sucursales, bodegas, agencias u otras dependencias de la matriz, deberán empadronarse por separado. En estos casos, previa solicitud del contribuyente, las autoridades fiscales podrán autorizar que el impuesto correspondiente a las sucursales sea pagado por conducto de la matriz, mediante la presentación de una sola declaración en la que se incluyan las erogaciones tanto de la matriz como de las sucursales o dependencias.
+Para los efectos de este capítulo, se entiende como fecha de iniciación de operaciones aquella en que tenga lugar la apertura del establecimiento, existiendo la obligación de pago del impuesto en el momento en que el contribuyente efectúe la primera erogación gravada.
+II.- Presentar ante la misma Oficina y dentro del plazo que señala la fracción anterior, los avisos de cambio de nombre o razón social, cambio de domicilio, actividad, traspaso de la negociación, suspensión temporal de actividades o clausura.
+III.- Presentar las declaraciones correspondientes, aún cuando no se hubieren efectuado erogaciones gravadas.
+IV.- Proporcionar los documentos e informes que les soliciten las autoridades fiscales en relación con este impuesto, dentro de los plazos y en los lugares señalados al efecto.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE OCTUBRE DE 1990)
+ART. 292 Bis D.- Los contribuyentes de este impuesto podrán celebrar convenios respecto a la forma para el pago, en aquellas actividades cuyas características ameriten el control del gravamen en las formas indicadas, para cuyo efecto se faculta a las autoridades fiscales. En estos casos no será necesaria la presentación de la declaración a que se refiere el Artículo anterior.
