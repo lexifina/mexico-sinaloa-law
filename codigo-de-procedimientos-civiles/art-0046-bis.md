@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 3 DE MAYO DE 1989)
+Artículo 46 Bis. En cualquier momento que se acredite en juicio el fallecimiento o la extinción de una de las partes, el proceso quedará interrumpido por el tiempo indispensable para que se apersone en el mismo el causahabiente de la desaparecida o su representante.
+También se interrumpe el proceso cuando muere el representante procesal de una parte. En este caso, la interrupción cesa al vencimiento del plazo señalado por el Tribunal para la substitución del representante procesal desaparecido, siendo a perjuicio de la parte si no prove (sic) a su representación en el juicio.
