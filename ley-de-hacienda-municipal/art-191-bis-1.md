@@ -1,6 +1,0 @@
-(ADICIONADO, P.O. 31 DE DICIEMBRE DE 1992)
-ARTICULO 191 BIS-1.- Las notificaciones personales se harán en el último domicilio que la persona a quien se deba notificar, haya señalado ante las autoridades fiscales en el procedimiento administrativo de que se trate, a falta de señalamiento, se estará a las reglas previstas en el Artículo 192 a partir de su segundo párrafo de este Ordenamiento.
-Se entenderán con la persona que deba ser notificada o su representante legal; a falta de ambos, el notificador dejará citatorio con cualquier persona que se encuentre en el domicilio, para que se le espere a una hora fija del día siguiente. Si el domicilio se encontrare cerrado, el citatorio se dejará con el vecino más inmediato.
-Si la persona a quien haya que notificarse no atendiere el citatorio, la notificación se le hará por conducto de cualquier persona que se encuentre en el domicilio en que se realice la diligencia y, de negarse ésta a recibirla, se realizará por instructivo que se fijará en la puerta del domicilio.
-En el momento de la notificación se entregará al notificado o a la persona con quien se entienda la diligencia, copia del documento a que se refiere la notificación.
-De las diligencias en que conste la notificación o cita, el ejecutor notificador tomará razón por escrito.
