@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 17 DE ENERO DE 1992)
+ARTICULO 6o. Bis-D.- Antes de aprobar la constitución de un desarrollo urbano integral o turístico en condominio, la autoridad competente se cerciorará de que con la obra se provea el óptimo aprovechamiento de las superficies por urbanizar, el establecimiento y uso apropiado de los servicios, la seguridad del inmueble y de los condominios, el respeto de la posesión pacífica y las medidas necesarias para la conservación ecológica y de la salud, teniendo siempre como objetivo el darle a la propiedad función social.
+Del total de la superficie del terreno el promotor del desarrollo urbano integral o turístico deberá destinar por lo menos el 15% del terreno para jardines y áreas de uso común.
+En lo aplicable se seguirá lo ordenado por los Artículos 3°, 4°, 5° y 6°. de esta Ley.

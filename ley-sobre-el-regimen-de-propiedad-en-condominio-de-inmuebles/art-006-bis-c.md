@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE ENERO DE 1992)
+ARTICULO 6o. Bis-C.- El equipamiento de los desarrollo (sic) urbanos consistente en dotación de agua mediante tomas domiciliarias, red de alcantarillado, red de electrificación, guarniciones, andadores peatonales, alumbrado, estacionamientos, parques, jardines y arborización, serán a cargo de quien hubiere promovido la construcción del desarrollo. La operación y mantenimiento de los servicios de alumbrado, de vigilancia, aseo y limpia, parques y jardines, fuentes y áreas recreativas, serán a cargo de los condominios.

@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 17 DE ENERO DE 1992)
+ARTICULO 6o Bis-E.- Los promotores de la construcción de desarrollos urbanos, tendrán la obligación de realizarlos de conformidad con los proyectos aprobados por la autoridad, así como de proporcionar los documentos e informes que se les requieran, debiendo ajustarse al Plan Estatal de Desarrollo Urbano y al Municipal de ubicación de la obra, así como cubrir los impuestos y derechos que se establezcan en las leyes correspondientes.
+Igualmente tendrán la obligación de organizar asociaciones de vecinos que colaboren coordinadamente con las autoridades federales, estatales y municipales para la seguridad, salud y el mejoramiento del desarrollo urbano.

@@ -17,3 +17,4 @@ El Secretario General de Gobierno
 Lic. Francisco Rodolfo Alvarez Fárber
 El Secretario de Finanzas del Estado
 Lic. Raúl Ibáñez Villegas
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
