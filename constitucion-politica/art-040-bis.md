@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 15 DE NOVIEMBRE DE 1958)
-Art. 40 Bis. A la Apertura de cada Primer Período Ordinario de Sesiones del Congreso, concurr rá (sic) el Presidente del Supremo Tribunal de Justicia y presentará un Informe por escrito sobre el estado que guarde la Administración de la Justicia de la Entidad. El Presidente de la Legislatura contestará en términos generales.
+(REFORMADO, P.O. 12 DE SEPTIEMBRE DE 1961)
+Art. 40 Bis. En el mes de enero de cada año, el Supremo Tribunal de Justicia del Estado enviará al Congreso un Informe por escrito sobre el estado que guarde la Administración de la Justicia en la Entidad. Este Informe comprenderá todo el año próximo anterior.
