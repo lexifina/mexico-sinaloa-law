@@ -9,7 +9,10 @@ e).- Indemnización por rescisión o terminación de las relaciones de trabajo;
 f).- Pago por gastos funerarios;
 g).- Gastos de representación y viáticos efectivamente erogados por cuenta del patrón y debidamente comprobados, en los mismos términos que para su deducibilidad requiere la Ley del Impuesto sobre la Renta;
 h).- Pagos a trabajadores domésticos; y
-i).- Aguinaldo.
+(REFORMADO, P.O. 25 DE DICIEMBRE DE 1995)
+i).- Aguinaldo y gratificaciones que perciban los trabajadores de sus patrones durante el año calendario, hasta el equivalente a un salario mínimo general del Estado de Sinaloa elevado a 30 días, cuando dichas gratificaciones se otorguen en forma general;
+(ADICIONADO, P.O. 25 DE DICIEMBRE DE 1995)
+j).- Gastos de previsión social que sean considerados deducibles y exentos para efectos del Impuesto sobre la Renta.
 II.- Las erogaciones que efectúen:
 a).- La Federación y los Municipios;
 b).- Instituciones sin fines de lucro que realicen o promuevan asistencia social en cualquiera de sus formas, así como actividades deportivas, culturales o sociales;
@@ -17,4 +20,5 @@ b).- Instituciones sin fines de lucro que realicen o promuevan asistencia social
 c).- Agrupaciones de trabajadores, de profesionales, de empresarios o propietarios;
 d).- Instituciones educativas;
 e).- Clubes de servicio; y
-f).- Partidos y asociaciones políticas.
+(REFORMADO, P.O. 25 DE DICIEMBRE DE 1995)
+f).- Partidos, Asociaciones Políticas y Asociaciones Religiosas.

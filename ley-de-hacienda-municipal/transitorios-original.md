@@ -58,6 +58,14 @@ FRACCION III.- Quedan incluídos en el beneficio que establece el Artículo Cuar
 FRACCION IV.- Para el año de 1991 los contribuyentes del Impuesto Predial Urbano que lo enteren en los términos previstos en el Artículo 53 inciso B) de esta Ley, tendrán derecho al 10% de descuento sobre el monto del mismo.
 FRACCION V.- Aquellos eventos comprendidos en el numeral 2 de la Fracción II del Artículo 12 de esta Ley, que sean organizados y realizados por los Comités de Desarrollo, el DIF, o Instituciones de Asistencia Social Pagarán el 7.5% sobre el Ingreso total.
 FRACCION VI.- En los casos de Adquisición de Inmuebles señalados en la Fracción II del Artículo 58 de esta Ley, se deducirá a la base gravable citada 10 veces el salario mínimo general elevado al año de la zona económica del Municipio de Mazatlán.
+(ADICIONADO, P.O. 25 DE DICIEMBRE DE 1995)
+ARTICULO OCTAVO.- Los contribuyentes que durante el primer bimestre de 1996 cubran adeudos anteriores al ejercicio fiscal mencionado, por concepto de Impuesto Predial sobre fincas urbanas no causarán los recargos y multas correspondientes a dicho adeudo.
+(ADICIONADO, P.O. 25 DE DICIEMBRE DE 1995)
+ARTICULO NOVENO.- Durante el ejercicio fiscal de 1996, el monto del Impuesto Predial sobre Fincas Urbanas cuyas características físicas no hayan sido modificadas, en ningún caso será mayor a aquel que se hubiere determinado conforme a las disposiciones vigentes al 31 de Diciembre de 1995.
+(ADICIONADO, P.O. 25 DE DICIEMBRE DE 1995)
+ARTICULO DECIMO.- Durante el ejercicio fiscal de 1996, el impuesto predial sobre fincas urbanas que resulte a cargo de contribuyentes jubilados y pensionados o de sus cónyuges, en ningún caso será mayor a aquél que se hubiere determinado conforme a las disposiciones vigentes al 31 de diciembre de 1995.
+(ADICIONADO, P.O. 25 DE DICIEMBRE DE 1995)
+ARTICULO DECIMO PRIMERO.- Para el ejercicio fiscal de 1996, el artículo 52 Bis de esta Ley no tendrá vigencia.
 Es dado en el Palacio del Poder Legislativo del Estado, en la ciudad de Culiacán Rosales, Sinaloa, a los veinte días del mes de Marzo de mil novecientos noventa.
 C. ANGEL POLANCO BERUMEN
 DIPUTADO PRESIDENTE

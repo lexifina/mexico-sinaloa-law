@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 25 DE DICIEMBRE DE 1995)
+ART. 334 TER-F.- Por la evaluación para instalar y operar sistemas de recolección, almacenaje, transporte, alojamiento, reuso, tratamiento, reciclaje, incineración y disposición final de residuos no peligrosos, así como para prestar servicios en dichas operaciones, se pagará por cada evaluación el derecho de prevención y control de la contaminación 160 días de salario mínimo general vigente en el Estado.
