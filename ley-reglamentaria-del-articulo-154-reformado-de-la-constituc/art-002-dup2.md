@@ -5,3 +5,4 @@ Palacio del Poder Ejecutivo del Estado, en Culiacán Rosales, a los seis días d
 ALFREDO DELGADO.
 El Secretario General de Gobierno,
 Lic. ALFREDO CRISTERNA.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
