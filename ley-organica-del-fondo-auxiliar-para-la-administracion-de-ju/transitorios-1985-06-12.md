@@ -1,0 +1,5 @@
+P.O. 12 DE JUNIO DE 1985.
+(F. DE E., P.O. 29 DE JULIO DE 1985)
+ARTICULO PRIMERO.- En cumplimiento del Artículo Cuarto Transitorio de la Ley Orgánica del Fondo Auxiliar para la Administración de Justicia del Estado de Sinaloa, el Supremo Tribunal de Justicia del Estado, expedirá, en un plazo no mayor de sesenta días, el Reglamento de esta Ley, el cual contemplará la creación de un Instituto de Capacitación para el personal del Poder Judicial, el que deberá iniciar sus actividades en un plazo máximo de ciento veinte días.
+ARTICULO SEGUNDO.- De los remanentes existentes a la fecha en que entre en vigor el presente Decreto, se aplicará el 30% a la adquisición de mobiliario y libros de consulta, el 30% para la creación del Instituto de Capacitación a que se refiere el artículo anterior y el 40% restante se destinará a la reserva patrimonial del Fondo.
+ARTICULO TERCERO.- El presente Decreto entrará en vigor a partir del día siguiente al de su publicación en el Periódico Oficial "El Estado de Sinaloa".
