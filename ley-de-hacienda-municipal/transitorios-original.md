@@ -1,6 +1,7 @@
 TRANSITORIOS:
 ARTICULO PRIMERO.- La presente Ley entrará en vigor en los Municipios a que se refiere el Artículo Segundo Transitorio de esta Ley, al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
-ARTICULO SEGUNDO.- Se deroga en los Municipios de Ahome, El Fuerte, Choix, Guasave, Sinaloa, Mocorito, Angostura, Salvador Alvarado, Badiraguato, Culiacán, Navolato, Cosalá, Elota, San Ignacio, Concordia, El Rosario y Escuinapa, la Ley de Hacienda Municipal contenida en el Decreto número 87, publicada en el Periódico Oficial "El Estado de Sinaloa" número 157 de fecha 31 de Diciembre de 1966.
+(REFORMADO, P.O. 20 DE FEBRERO DE 1991)
+ARTICULO SEGUNDO.- Se deroga en los Municipios de Ahome, El Fuerte, Choix, Guasave, Sinaloa, Mocorito, Angostura, Salvador Alvarado, Badiraguato, Culiacán, Navolato, Cosalá, Elota, San Ignacio, Mazatlán, Concordia, Rosario y Escuinapa, la Ley de Hacienda Municipal contenida en el Decreto número 87, publicada en el Periódico Oficial "El Estado de Sinaloa" número 157 de fecha 31 de Diciembre de 1966.
 ARTICULO TERCERO.- En tanto se apruebe el Código Fiscal Municipal:
 I.- Continuarán aplicándose las disposiciones contenidas en los Artículos 1, 8, 9, 10, 11, 12, 13, 15, 16, 17, 18, 19, 25, 26, 27, 28, 29, 31, 35, 36, 38, 39, 43, 44, 45, 46, 48, 49, 51, 52, 53, 54, 55, 67, 68, 69, 71, 75, 76, 77, 78, 79, 80, 81, 82, 83, 86, 87, 91, 92, 93, 94, 95, 96, 97, 99, 107, 108, 113, 114, 115, 119 y 120 del Título Primero de la Ley de Hacienda a que se refiere el Artículo que precede.
 II.- La tasa de recargos por pago extemporáneo de las contribuciones municipales, se aplicarán aumentándose en un 50% de la tasa que en la Ley de vigencia anual por cada Municipio, apruebe el Congreso Local para los casos de pagos a plazos o prórroga de éstos.
@@ -18,16 +19,33 @@ i) Cuando la liquidación de alguna prestación fiscal esté encomendada a Funci
 j) Las Autoridades Fiscales Municipales se abstendrán de imponer sanciones, cuando se haya incurrido en infracción a causa de fuerza mayor o caso fortuito o cuando se enteren en forma espontánea los impuestos, contribuciones o derechos no cubiertos dentro de los plazos señalados por las Disposiciones Fiscales.
 La aplicación de las sanciones administrativas que procedan, se hará sin perjuicio de que se exija el pago de las prestaciones fiscales respectivas, de recargos en su caso, y de las penas que impongan las Autoridades Judiciales cuando se incurra en responsabilidad penal.
 Los funcionarios o empleados públicos ante quienes con motivo de sus funciones, se exhiba algún libro, objeto o documento que implique el incumplimiento de las Leyes Fiscales, harán la denuncia respectiva a las Autoridades Hacendarias para no incurrir en responsabilidad.
-ARTICULO CUARTO.- Para el ejercicio fiscal de 1990, los contribuyentes obligados al pago del Impuesto Predial sobre Fincas Urbanas, tendrán derecho a reducir del Impuesto que resulte, el procentaje (sic) según la fecha de la revaluación catastral que en determinada población haya entrado en vigor, siempre y cuando el predio de que se trate sea exclusivamente habitado por su propietario, en los términos siguientes:
-POBLACION REVALUADAEN:REDUCCION:
-1990el50% del impuesto a pagar.
-1989el40% del impuesto a pagar.
-1988el35% del impuesto a pagar.
-1987el25% del impuesto a pagar.
-1986el15% del impuesto a pagar.
-En el caso de que la revaluación entre en vigor en el transcurso del ejercicio fiscal de 1990, la reducción a que se refiere el presente artículo se realizará a partir del momento mismo en que se aplique a los valores de dicha revaluación.
-Las casas habitación propiedad de pensionados o jubilados con valor hasta de 10,000 veces el salario mínimo diario, pagarán un importe como cuota fija de 3 veces el salario mínimo diario al año, previa comprobación a satisfacción de la Tesorería Municipal en la que corresponda hacer el pago de su calidad de jubilado o pensionado, así como de que es propietario y habita la propiedad objeto de este Artículo.
-ARTICULO QUINTO.- Durante el ejercicio fiscal de 1990, aquellos contribuyentes que hayan realizado el pago de algún trimestre, o bien el pago total anual del Impuesto Predial, previamente a la entrada en vigor de la presente Ley, no se les cobrarán las diferencias a que se refiere el último párrafo del Artículo 57 de esta Ley, cuando éstas resulten con motivo de la aplicación de la tarifa contenida en la fracción I del Artículo 52, pero procederá la reintegración de diferencias cuando éstas resulten a favor del contribuyente.
+(REFORMADO, P.O. 20 DE FEBRERO DE 1991)
+ARTICULO CUARTO.- Durante 1991 en aquellas poblaciones en que las revaluaciones catastrales hayan entrado o entren en vigor a partir del 1° de Enero de 1990 hasta el 31 de Diciembre de 1991, el Impuesto Predial Urbano se determinará conforme a la tarifa contenida en la Fracción I del Artículo 52 de esta Ley, tomando como base para sus pagos:
+I.- El 65% del monto que resulte para los inmuebles cuyo valor catastral establecen los incisos a), b), c), d), e), f) y g).
+II.- El 60% para el inciso h); y
+III.- El 50% para el inciso i).
+Al hacer efectivas las reducciones a que se refiere el párrafo que precede en ningún caso el impuesto total a pagar será menor al que resulte mayor de la Fracción que le antecede.
+Además para el ejercicio fiscal de 1991 los contribuyentes obligados al pago del Impuesto Predial sobre fincas urbanas habitadas exclusivamente por su propietario tendrán derecho a reducir del impuesto que resulte, el porcentaje según la fecha de la revaluación catastral que en determinada población haya entrado en vigor, en los términos siguientes:
+POBLACION CUYA REVALUACION
+ENTRO EN VIGOR EN:REDUCCION
+1991EL 50% DEL IMPUESTO A PAGAR.
+1990EL 40% DEL IMPUESTO A PAGAR.
+1989EL 35% DEL IMPUESTO A PAGAR.
+1988EL 25% DEL IMPUESTO A PAGAR.
+1987EL 15% DEL IMPUESTO A PAGAR.
+Lo dispuesto por los párrafos primero y segundo de este artículo no es aplicable para los Municipios de Ahome y Mazatlán.
+La casa habitación propiedad de pensionados o jubilados o de sus cónyuges con valor hasta de 10,000 veces el salario mínimo general diario, pagarán un importe como cuota fija de 3 veces el salario mínimo general diario al año, previa comprobación a satisfacción de la Tesorería Municipal en la que corresponda hacer el pago de su calidad de jubilado o pensionado, así como de que ellos habitan la propiedad objeto de este Artículo. Cuando la casa habitación tenga un valor superior a 10,000 veces el salario mínimo general diario, el impuesto se causará mediante la aplicación de la siguiente:
+TARIFA:
+VALOR CATASTRAL DELCUOTA FIJATASA AL MILLAR
+PREDIO EN Número deDías de Salariossobre el excedente
+veces el Salario MínimoMínimosdel límite inferior
+Diario de la Zona.
+a). Hasta 10,0003-
+b). Más de 10,000 a 15,00034
+c). Más de 15,000 a 40,0004810
+d) Más de 40,00034816
+(REFORMADO, P.O. 20 DE FEBRERO DE 1991)
+ARTICULO QUINTO.- Durante el ejercicio fiscal de 1991, aquellos contribuyentes que hayan realizado el pago de algún trimestre, o bien el pago total anual del Impuesto Predial, previamente a la entrada en vigor de la presente modificación a la Ley, no se les cobrarán las diferencias a que se refiere el último párrafo del Artículo 57, cuando éstas resulten con motivo de la aplicación de la tarifa contenida en la fracción I del Artículo 52, pero procederá la reintegración de diferencias cuando éstas resulten a favor del contribuyente.
 (ADICIONADO, P.O. 2 DE ENERO DE 1991)
 ARTICULO SEXTO.- En aquellas poblaciones del Municipio de Ahome, en que las revaluaciones catastrales entren en vigor a partir del 1 de octubre de 1990 hasta el 31 de diciembre de 1991, el Impuesto Predial Urbano se determinará conforme a la tarifa de la fracción I del Artículo 52 de esta Ley, tomando como base para su pago el 60% del monto del impuesto que resulte para los supuestos que establecen los incisos A, B, C, D, E, F Y G; el 55% para el inciso H; y, el 50% para el inciso I.
 (ADICIONADO, P.O. 21 DE ENERO DE 1991)
