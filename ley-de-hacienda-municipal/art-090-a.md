@@ -19,8 +19,10 @@ Bar153126126
 Cabaret126103103
 Centro Nocturno203171153
 Restaurant c/vta. de cerveza1068585
-Restaurant c/vta. de cerveza y vinos1068585
-Restaurant c/vta. de cerveza, vinos y licores147132119
+Restaurant c/vta. de cerveza y
+vinos1068585
+Restaurant c/vta. de cerveza,
+vinos y licores147132119
 Restaurant con bar anexo163163163
 Club Social126103103
 Salón de Baile o de Fiesta126103103
@@ -29,7 +31,8 @@ Discoteca126126126
 Salón de Boliche106106106
 Ultramarinos147136126
 Depósito de cerveza147147147
-Agencia Matriz con venta al público en general236236236
+Agencia Matriz con venta
+al público en general236236236
 b).- Por la autorización de horario extraordinario para el funcionamiento de establecimientos con venta y/o consumo de bebidas alcohólicas, por cada hora se causarán derechos conforme a la siguiente:
 TARIFA
 GIROSCATEGORIA
@@ -42,8 +45,10 @@ Bar0.740.740.74
 Cabaret0.490.430.43
 Centro Nocturno0.810.750.70
 Restaurant c/vta. de cerveza0.360.360.36
-Restaurant c/vta. de cerveza y vinos0.390.390.39
-Restaurant c/vta. de cerveza, vinos y licores0.420.420.42
+Restaurant c/vta. de cerveza
+y vinos0.390.390.39
+Restaurant c/vta. de cerveza,
+vinos y licores0.420.420.42
 Restaurant con bar anexo0.740.740.74
 Club Social0.490.400.40
 Salón de Baile o de Fiesta0.400.350.30
@@ -52,11 +57,13 @@ Discoteca0.490.490.49
 Salón de Boliche0.360.360.36
 Ultramarinos0.390.390.39
 Depósito de Cerveza0.810.810.81
-Agencia Matriz con venta al Público en general0.810.810.81
+Agencia Matriz con venta
+al Público en general0.810.810.81
 c).- Por el otorgamiento de permisos eventuales para el funcionamiento de establecimientos para la venta y/o consumo de bebidas alcohólicas por día, se causarán derechos conforme a la siguiente:
 TARIFA
 GIROSCATEGORIA
 ABC
 Para muestras y degustaciones543
-Eventos deportivos, recreativos y artísticos20010050
+Eventos deportivos, recreativos
+y artísticos20010050
 Eventos sociales502510
