@@ -1,0 +1,1 @@
+ARTICULO CUARTO.- Los recursos administrativos que se hayan interpuesto durante la vigencia de las disposiciones que deroga este Decreto, se substanciarán conforme a las disposiciones fiscales vigentes al inicio de los mismos.
