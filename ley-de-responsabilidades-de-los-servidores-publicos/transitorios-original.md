@@ -6,6 +6,8 @@ ARTICULO CUARTO.- Las unidades específicas a que se refiere el Artículo 54 de 
 ARTICULO QUINTO.- Las Contralorías Generales a que se refiere esta Ley, se establecerán en un plazo no mayor de noventa días a partir de la fecha de iniciación de su vigencia, y dentro del mismo plazo el Gobernador del Estado adecuará, en lo conducente, a los términos de la misma, la estructura y atribuciones de la Contraloría General del Poder Ejecutivo creada mediante decreto expedido por su titular con fecha 11 de junio de 1984, publicado en el Periódico Oficial "El Estado de Sinaloa", número 82, correspondiente al día 9 de julio del mismo año.
 ARTICULO SEXTO.- Dentro del mismo plazo señalado en el artículo anterior, se creará la Unidad de Control y Evaluación en el seno del Comité Estatal de Planeación para el Desarrollo de Sinaloa y en el seno de los Comités de Planeación para el Desarrollo Municipal.
 ARTICULO SEPTIMO.- La presente Ley entrará en vigor el día siguiente al de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+(ADICIONADO, P.O. 16 DE NOVIEMBRE DE 1992)
+ARTICULO OCTAVO.- En tanto no se establezcan las Contralorías Generales de los Poderes Legislativo y Judicial, la Contaduría Mayor de Hacienda y la Oficialía Mayor, respectivamente, desarrollarán las funciones que esta Ley encomienda a las Contralorías.
 Es dado en el Palacio del Poder Legislativo del Estado, en la ciudad de Culiacán Rosales, Sinaloa, a los siete días del mes de octubre de mil novecientos ochenta y cinco.
 Profr. Eladio Rafael López Mejia
 Diputado Presidente
@@ -19,3 +21,4 @@ El Gobernador Constitucional del Estado
 C. ANTONIO TOLEDO CORRO
 El Secretario de Gobierno
 LIC. ELEUTERIO RIOS ESPINOZA
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
