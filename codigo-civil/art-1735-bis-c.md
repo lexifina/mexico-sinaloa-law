@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE ENERO DE 2001)
+Artículo 1735 Bis- C.- En todos los casos, ya sea de terminación de contrato o de la modificación equitativa en la forma y modalidades de la ejecución, el alcance de la demanda no se extenderá a las prestaciones realizadas hasta antes de la presentación del acontecimiento extraordinario, pero las prestaciones cubiertas con posterioridad a éste así como las futuras pendientes de cumplir si serán materia de la terminación del contrato o de la modificación equitativa en la forma y modalidades de la ejecución.
