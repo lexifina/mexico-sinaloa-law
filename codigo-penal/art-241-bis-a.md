@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE MARZO DE 2003)
+ARTICULO 241 BIS A.- Se equipara a la violencia intrafamiliar y se sancionará con las mismas consecuencias jurídicas previstas en el artículo anterior, al que realice cualquiera de los actos señalados en dicho precepto en contra de la persona con la que se encuentra unida fuera de matrimonio, o de cualquier otra persona que esté sujeta a su custodia, guarda, protección, educación, instrucción o cuidado, siempre y cuando el agresor y el ofendido convivan o hayan convivido en la misma casa.
