@@ -14,8 +14,11 @@ III.- El 50% para el inciso i).
 Al hacer efectivas las reducciones a que se refiere el párrafo que precede en ningún caso el impuesto total a pagar será menor al que resulte mayor de la Fracción que le antecede.
 (REFORMADO, P.O. 31 DE DICIEMBRE DE 1992)
 Además para el Ejercicio Fiscal de 1993, los contribuyentes obligados al pago del Impuesto Predial sobre fincas urbanas habitadas exclusivamente por su propietario tendrán derecho a reducir del impuesto que resulte, el porcentaje según la fecha de la revaluación catastral que en determinada población haya entrado en vigor, en los términos siguientes:
-POBLACION CUYA REVALUACION
-ENTRO EN VIGOR EN:REDUCCION:
+POBLACION REDUCCION:
+CUYA
+REVALUACION
+ENTRO EN
+VIGOR EN:
 1993El 50% del impuesto a pagar
 1992El 40% del impuesto a pagar
 1991El 30% del impuesto a pagar
@@ -25,13 +28,16 @@ ENTRO EN VIGOR EN:REDUCCION:
 (REFORMADO, P.O. 20 DE FEBRERO DE 1991)
 La casa habitación propiedad de pensionados o jubilados o de sus cónyuges con valor hasta de 10,000 veces el salario mínimo general diario, pagarán un importe como cuota fija de 3 veces el salario mínimo general diario al año, previa comprobación a satisfacción de la Tesorería Municipal en la que corresponda hacer el pago de su calidad de jubilado o pensionado, así como de que ellos habitan la propiedad objeto de este Artículo. Cuando la casa habitación tenga un valor superior a 10,000 veces el salario mínimo general diario, el impuesto se causará mediante la aplicación de la siguiente:
 TARIFA:
-VALOR CATASTRAL DELCUOTA FIJATASA AL MILLAR
-PREDIO EN Número deDías de Salariossobre el excedente
-veces el Salario MínimoMínimosdel límite inferior
-Diario de la Zona.
+VALOR CATASTRAL DELCUOTA FIJATASA AL MILLAR PREDIO
+EN Número deDías de Salariossobre el excedente
+veces el Salario Mínimosdel límite inferior
+Mínimo Diario
+de la Zona.
 a). Hasta 10,0003-
-b). Más de 10,000 a 15,00034
-c). Más de 15,000 a 40,0004810
+b). Más de 10,000
+a 15,00034
+c). Más de 15,000
+a 40,0004810
 d) Más de 40,00034816
 (ADICIONADO, P.O. 31 DE ENERO DE 1992) (F. DE E., P.O. 5 DE FEBRERO DE 1992)
 Quedan incluídos en el beneficio señalado en este Artículo, las personas físicas de nacionalidad extranjera que residan en el Municipio de Mazatlán y que habiten personalmente el predio urbano respectivo adquirido a través de fideicomiso previamente constituído ante la Institución Bancaria correspondiente y que aparezca como fideicomisario en dicho contrato. Quedan exceptuadas de este beneficio, las personas morales de nacionalidad extranjera que tengan sus propiedades legalmente constituídas.
