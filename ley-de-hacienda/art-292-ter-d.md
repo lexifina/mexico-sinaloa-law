@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 12 DE AGOSTO DE 1996)
+ART. 292 TER-D.- Este impuesto se pagará mediante declaración que deberá presentar el contribuyente en los formatos oficialmente aprobados ante las oficinas autorizadas para ello, dentro de los primeros 15 días de cada mes, debiendo contener dicha declaración la información y demás datos relativos a las altas y operaciones objeto de este impuesto que se hayan realizado en el mes anterior.
