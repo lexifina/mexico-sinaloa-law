@@ -5,7 +5,3 @@ Que por el H. Congreso del mismo se le ha comunicado lo siguiente:
 El Congreso del Estado Libre y Soberano de Sinaloa, representado por su XLIX Legislatura, ha tenido a bien expedir el siguiente:
 DECRETO NUMERO 41
 LEY DE HACIENDA DEL ESTADO DE SINALOA
-TITULO PRIMERO
-DISPOSICIONES GENERALES
-CAPITULO I
-De la Legislación Fiscal
