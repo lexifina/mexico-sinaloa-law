@@ -14,7 +14,7 @@ DIPUTADO SECRETARIO
 Por lo tanto mando se imprima, publique, circule y se le dé el debido cumplimiento.
 Es dado en el Palacio del Poder Ejecutivo del Estado, en la ciudad de Culiacán Rosales, Sinaloa, a los veintiún días del mes de Noviembre del año dos mil uno.
 El Gobernador Constitucional del Estado
-Juan S. Millán Lizárraga
+Juan S. Millan Lizárraga
 El Secretario General de Gobierno
 Gonzalo M. Armienta Calderón
 N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
