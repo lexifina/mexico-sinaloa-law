@@ -1,0 +1,1 @@
+Artículo 138 (sic).- La nulidad por falta de consentimiento de los ascendientes solo podrá alegarse por aquel o aquellos a quienes tocaba prestar dicho consentimiento, y dentro de treinta días contados desde que tengan conocimiento del matrimonio.
