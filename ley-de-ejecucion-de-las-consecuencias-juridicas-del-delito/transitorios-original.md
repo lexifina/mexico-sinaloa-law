@@ -1,5 +1,6 @@
 TRANSITORIOS
-ARTÍCULO PRIMERO.- Esta Ley entrará en vigor a los ciento ochenta días de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+(REFORMADO, P.O. 11 DE MARZO DE 2002)
+ARTÍCULO PRIMERO.- Esta Ley entrará en vigor el día tres de enero de 2003.
 ARTÍCULO SEGUNDO.- Para el debido cumplimiento de lo preceptuado por esta ley, el Ejecutivo del Estado deberá expedir el o los reglamentos administrativos dispuestos dentro de un plazo de treinta días naturales contados a partir de la fecha de su inicio de vigencia.
 ARTÍCULO TERCERO.- Se abrogan la Ley de Ejecución de Sanciones Privativas y Restrictivas de Libertad; la Ley Orgánica del Instituto de Readaptación Social; la Ley Orgánica de la Zona de Procesados del Instituto de Readaptación Social, así como la Ley que crea el Patronato para Reos Liberados del Estado de Sinaloa.
 ARTÍCULO CUARTO.- El Poder Ejecutivo del Estado, deberá, a más tardar el día primero de enero del año 2003, asumir la responsabilidad de incorporar presupuestalmente al sistema penitenciario estatal, a las hoy denominadas cárceles municipales, en lo que respecta a su funcionamiento como centro de ejecución de las consecuencias jurídicas del delito, quedando a partir de esa fecha, a cargo de su administración, operación, mantenimiento y vigilancia directa.
