@@ -1,0 +1,15 @@
+TRANSITORIOS:
+Art. 1o. Esta Constitución comenzará a regir desde el día siguiente al de su promulgación y se publicará por bando solemne en todo el Estado.
+Art. 2o. Subsistirán vigentes todas las leyes y decretos en todo aquello que no se oponga a esta Constitución.
+Art. 3o. Para los efectos del artículo 18 de esta Constitución y mientras se expidan las leyes que los determine (sic), se reputarán como distritos fiscales, judiciales y electorales, las actuales divisiones en la forma que hasta hoy han existido.
+Art. 4o. Surtirá sus efectos el artículo 23, desde la próxima Legislatura que deberá instalarse el quince se (sic) septiembre del presente año; para lo cual, los distritos electorales de número impar, renovarán sus representantes en las elecciones que se verifiquen en los años de 1924, 1928, etc. y los de número par, en 1926, 1930, etc.
+Art. 5o. El período de ejercicios del actual Gobernador del Estado, expirará el 26 de septiembre de 1924 y le seguirá un Gobernador Interino nombrado por el Congreso del Estado, cuyas funciones terminarán el 31 de diciembre del mismo año. Las prevenciones del artículo 57, entrarán en vigor desde el 1º de enero de 1925, fecha en que inaugurará su período legal el Gobernador que resulte electo en el primer domingo de julio de 1924.
+Art. 6o. El período de funciones de los Magistrados del Supremo Tribunal de Justicia del Estado, comenzará a contarse desde el 1º de octubre de 1924. En la misma fecha se inaugurarán los períodos de los Jueces de Primera Instancia y Menores.
+Art. 7o. Los Ayuntamientos que se instalen el día 1o. de enero de 1923, estarán sujetos a las disposiciones de los artículos 113 y 115.
+Es dada en el Palacio del Poder Legislativo del Estado, en Culiacán Rosales, a los veintidós días del mes de junio de mil novecientos veintidós.
+Presidente, Diputado por el Segundo Distrito Electoral, Francisco de P. Alvarez.- Vice-Presidente, Diputado por el Cuarto Distrito Electoral, J. M. Angulo.- Prosecretario, Diputado por el Sexto Distrito Electoral, Melesio Cuen.- Diputado por el Primer Distrito Electoral, C. Villa Velázquez.- Diputado por el Tercer Distrito Electoral, C. Peña Rocha.- Diputado Suplente en funciones por el Noveno Distrito Electoral, Luis López de Nava.- Diputado por el Décimo Tercero Distrito Electoral, Luis D. Fitch.- Diputado por el Décimo Cuarto Distrito Electoral, E. Castañeda.- Diputado por el Quinto Distrito Electoral, V. Díaz.- Diputado por el Décimo Distrito Electoral, J. Salcido.- Diputado por el Undécimo Distrito Electoral, R. Ponce de León.- Diputado por el Décimo Segundo Distrito Electoral, Z. Conde.- Primer Secretario, Diputado por el Octavo Distrito Electoral, J. de D. Bátiz.- Segundo Secretario, Diputado por el Séptimo Distrito Electoral, J.T. Rodríguez.- Rúbricas.
+Y por tanto mando se imprima, publique por bando solemne y circule para su debido cumplimiento.
+Palacio del Poder Ejecutivo del Estado, en Culiacán Rosales, a los veintidós días del mes de junio de mil novecientos veintidós.
+José Aguilar.
+El Jefe del Departamento.
+Manuel A. Barrantes.
