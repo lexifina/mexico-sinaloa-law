@@ -2,7 +2,7 @@ TRANSITORIOS:
 Art. 1o. Esta Constitución comenzará a regir desde el día siguiente al de su promulgación y se publicará por bando solemne en todo el Estado.
 Art. 2o. Subsistirán vigentes todas las leyes y decretos en todo aquello que no se oponga a esta Constitución.
 Art. 3o. Para los efectos del artículo 18 de esta Constitución y mientras se expidan las leyes que los determine (sic), se reputarán como distritos fiscales, judiciales y electorales, las actuales divisiones en la forma que hasta hoy han existido.
-Art. 4o. Surtirá sus efectos el artículo 23, desde la próxima Legislatura que deberá instalarse el quince se (sic) septiembre del presente año; para lo cual, los distritos electorales de número impar, renovarán sus representantes en las elecciones que se verifiquen en los años de 1924, 1928, etc. y los de número par, en 1926, 1930, etc.
+Art. 4o. (DEROGADO, P.O. 31 DE MAYO DE 1930)
 Art. 5o. El período de ejercicios del actual Gobernador del Estado, expirará el 26 de septiembre de 1924 y le seguirá un Gobernador Interino nombrado por el Congreso del Estado, cuyas funciones terminarán el 31 de diciembre del mismo año. Las prevenciones del artículo 57, entrarán en vigor desde el 1º de enero de 1925, fecha en que inaugurará su período legal el Gobernador que resulte electo en el primer domingo de julio de 1924.
 (REFORMADO, P.O. 6 DE OCTUBRE DE 1928)
 Art. 6o. El período de funciones de los Magistrados del Supremo Tribunal de Justicia del Estado, comenzará a contarse desde el 1º de octubre de 1930. En la misma fecha se inaugurarán los períodos de los Jueces de Primera Instancia y Menores.
