@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 21 DE JULIO DE 1995)
+Artículo 52 Bis. Las partes pueden nombrar para que las representen en juicio, uno o más procuradores judiciales, autorizados para el ejercicio de la abogacía, quienes podrán llevar a cabo en favor de quien los haya designado todos los actos procesales que correspondan a dicha parte, excepto aquellos que impliquen disposición del derecho en litigio, los enumerados en el artículo 2469 del Código Civil y los que conforme a la ley estén reservados personalmente a los interesados.
+Para este efecto, bastará que la designación se haga en escrito privado dirigido al juez de la causa, debiendo contener la aceptación del o de los nombrados.
