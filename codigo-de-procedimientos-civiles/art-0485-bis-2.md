@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE AGOSTO DE 2004)
+Artículo 485 Bis-2. Todas las notificaciones se harán de acuerdo a lo ordenado en el Capítulo V, Título II, de este Código, y en caso de domicilio ignorado de la persona que deba ser emplazada, deberán ser publicados edictos, por tres veces consecutivas en el Periódico Oficial "El Estado de Sinaloa" y algún otro de mayor circulación a juicio del Juez, publicación que igualmente se hará en los estrados del juzgado. La notificación así hecha, surtirá sus efectos a partir del tercer día de hecha la última publicación.

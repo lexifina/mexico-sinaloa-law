@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE AGOSTO DE 2004)
+Artículo 485 Bis. Tratándose de personas menores de edad que hayan sido acogidas por una institución de asistencia social, sea pública o privada, la pérdida de la patria potestad a que se refiere la fracción IV, del artículo 445 del Código Civil, se tramitará de acuerdo al procedimiento señalado en este Capítulo, correspondiendo tal acción al Ministerio Público.
