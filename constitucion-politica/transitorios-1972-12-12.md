@@ -1,0 +1,5 @@
+P.O. 12 DE DICIEMBRE DE 1972.
+ARTICULO PRIMERO.- Los asuntos que sean competencia de la Tesorería General del Estado y de la Dirección del Desarrollo Económico, pasarán a serlo de la Secretaría de Finanzas y de la Secretaría del Desarrollo Económico, respectivamente.
+ARTICULO SEGUNDO.- En tanto se expiden las leyes orgánicas de la Secretaría de Finanzas y de la Secretaría del Desarrollo Económico, éstas se regirán por la Ley Orgánica de la Tesorería General del Estado, expedida mediante Decreto número 75 de 14 de mayo de 1963 y por la Ley que crea el Consejo Estatal del Desarrollo Económico y de la Dirección del Desarrollo Económico, expedida mediante decreto número 40 de 18 de marzo de 1969, respectivamente, en cuanto no se opongan a las presentes reformas.
+ARTICULO TERCERO.- La Secretaría General de Gobierno se regirá por su Ley Orgánica, expedida mediante decreto número 55, de 22 de enero de 1963, en cuanto no se oponga a las presentes reformas.
+ARTICULO CUARTO.- El presente Decreto entrará en vigor el mismo día de su publicación en el Periódico Oficial "El Estado de Sinaloa".
