@@ -1,3 +1,0 @@
-ART. 326 Bis.- (DEROGADO, P.O. 12 DE AGOSTO DE 1996)
-CAPITULO XII
-Servicio Sanitario

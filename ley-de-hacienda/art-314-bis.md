@@ -1,8 +1,0 @@
-(ADICIONADO, P.O. 25 DE DICIEMBRE DE 1995)
-ART. 314 Bis.- No causarán los derechos a que se refiere este Capítulo:
-a).- Cuando se trate de inscripción relativa a bienes inmuebles del dominio público o derechos reales pertenecientes a la Federación, al Estado de Sinaloa y sus Municipios;
-b).- Por los informes o certificaciones que soliciten el Gobierno Federal, las autoridades del Estado de Sinaloa o de sus Municipios;
-c).- Por los informes que soliciten las autoridades administrativas y judiciales para asuntos penales o juicios de amparo;
-d).- En los casos de inscripciones preventivas a que se refiere el Artículo 2899 del Código Civil;
-e).- Cuando se trate de reinscripciones relativas a bienes inmuebles y derechos reales, si la misma se efectúa en una nueva oficina del registro público;
-f).- Por la búsqueda y expedición de certificados de libertad de gravámenes o de no propiedad para la adquisición de casa-habitación, cuyo valor catastral en la fecha de la operación no exceda de 9,000 días de salario mínimo.

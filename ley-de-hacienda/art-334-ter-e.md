@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 25 DE DICIEMBRE DE 1995)
-ART. 334 TER-E.- Por el otorgamiento del dictamen técnico para la obtención de estímulos fiscales o créditos de organismos financieros, en las actividades relacionadas con la preservación y restauración del equilibrio ecológico y la protección al ambiente, se pagará el derecho de prevención y control de la contaminación por cada dictamen técnico 35 días de salario mínimo general vigente en el Estado.

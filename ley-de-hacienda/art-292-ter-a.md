@@ -1,4 +1,0 @@
-(ADICIONADO, P.O. 12 DE AGOSTO DE 1996)
-ART. 292 TER-A.- Son sujetos de este impuesto las personas físicas o morales que presten los servicios de hospedaje a que se refiere el artículo anterior.
-Los sujetos de este impuesto trasladarán su importe en forma expresa y por separado a las personas que reciban los servicios objeto de este impuesto, y se causará al momento en que se perciba el importe correspondiente a la contraprestación por los servicios de hospedaje, incluyendo depósitos, anticipos, gastos de toda clase, bienes convencionales y cualquier otro concepto de la misma naturaleza.
-Asimismo cuando los contribuyentes convengan la prestación de servicios de hospedaje e incluyan servicios accesorios tales como transportación, comida, uso de instalaciones u otros similares y no desglosen o comprueben la prestación de estos últimos, se entenderá que el importe de la contraprestación respectiva corresponde a servicios de hospedaje.
