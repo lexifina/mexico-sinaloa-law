@@ -1,0 +1,6 @@
+P.O. 16 DE NOVIEMBRE DE 1984.
+ARTICULO PRIMERO.- En los casos no comprendidos dentro de las exenciones al Impuesto sobre Remuneración del Trabajo Personal señalados en la vigente Ley y el presente Decreto, la tasa del 1.37% establecida por éste en el Artículo 166, solamente estará en vigor durante el resto del ejercicio fiscal del presente año y se reducirá en un 50% durante el ejercicio fiscal correspondiente al año de 1985.
+ARTICULO SEGUNDO.- A partir del 1o. de Enero de 1986, quedará abrogado el Capítulo IX, denominado "Impuesto sobre Remuneración del Trabajo Personal", del Título Segundo, de la Ley de Hacienda del Estado.
+ARTICULO TERCERO.- Los adeudos que se hubieren causado por concepto del citado impuesto, cuyo pago esté pendiente a la fecha en que entre en vigor la presente reforma, se harán efectivos conforme a la vigente Ley de Hacienda. Los que se causen durante el resto del presente año, a partir de la vigencia del propio Decreto y durante el año de 1985, se harán efectivos con sujeción a la tasa que resulte conforme al Artículo Primero Transitorio mientras no prescriba la acción para su cobro.
+ARTICULO CUARTO.- El presente Decreto entrará en vigor a partir del día 1o. de Noviembre de mil novecientos ochenta y cuatro.
+ARTICULO QUINTO.- Publíquese en el Periódico Oficial "El Estado de Sinaloa".
