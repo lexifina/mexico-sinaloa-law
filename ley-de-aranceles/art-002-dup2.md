@@ -5,3 +5,4 @@ Es dado en el Palacio del Poder Ejecutivo del Estado, Culiacán Rosales, a los d
 RODOLFO T. LOAIZA.
 El Secretario General de Gobierno.
 Lic. Teodoro Cruz.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
