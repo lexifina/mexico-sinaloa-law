@@ -1,42 +1,33 @@
 (REFORMADO PRIMER PARRAFO, P.O. 8 DE MAYO DE 1989)
 ART. 334 Bis A.- El uso de la autopista estatal "BENITO JUÁREZ", mediante el tráfico de vehículos en el tramo comprendido entre el poblado Las Brisas y el entronque con la carretera a Eldorado o viceversa, estará sujeto a la siguiente:
-(REFORMADA, P.O. 7 DE ABRIL DE 1989)
+(REFORMADA LA TARIFA, P.O. 07 DE ABRIL DE 1989)
 T A R I F A
-(REFORMADO, P.O. 7 DE ABRIL DE 1989)
 CLASE DE VEHICULOVECES EL SALARIO
 MINIMO GENERAL
-VIGENTE DIARIO EN
-SINALOA
-(REFORMADO, P.O. 7 DE ABRIL DE 1989)
+DIARIO VIGENTE
+EN SINALOA
 Tramo CompletoTramo Intermedio
-(REFORMADO, P.O. 7 DE ABRIL DE 1989)
-I.- Motocicletas0.200.10
-(REFORMADO, P.O. 7 DE ABRIL DE 1989)
-II.- Automóviles y camionetas
+I.- Motocicletas
+(con placas con
+Procedencia Extranjera)0.500.25
+II.- Automóviles y Camionetas
 tipo pick-up y panel, de hasta
 10 pasajeros:
-(REFORMADO, P.O. 7 DE ABRIL DE 1989)
-a) Sin remolque0.500.25
-(REFORMADO, P.O. 7 DE ABRIL DE 1989)
-b) Con remolque0.850.40
-(REFORMADO, P.O. 7 DE ABRIL DE 1989)
+a) Sin remolque1.300.65
+b) Con remolque1.500.75
 III.- Autobuses de
-Pasajeros0.850.40
-(REFORMADO, P.O. 7 DE ABRIL DE 1989)
+pasajeros1.700.85
 IV.- Camiones de carga
-de 2 ejes0.850.40
-(REFORMADO, P.O. 7 DE ABRIL DE 1989)
+de 2 ejes1.700.85
 V.- Camiones de carga o
-tractores con semiremolque
-de 3 Ejes1.300.65
-(REFORMADO, P.O. 7 DE ABRIL DE 1989)
+Tractores con semiremolque
+de 3 ejes2.201.10
 VI.- Camiones de carga o
 tractores con remolque de
-4 ejes1.800.90
-(REFORMADO, P.O. 7 DE ABRIL DE 1989)
+4 ejes2.701.35
 VII.- Camiones de carga o
-tractores con remolque de
-5 ejes2.201.10
+tractores con remolque
+de 5 ejes3.201.60
 (REFORMADO, P.O. 7 DE ABRIL DE 1989)
 Tratándose de camiones de carga o tractores con remolque, de más de 5 ejes, las cuotas a que se refiere la fracción VII se incrementarán por cada eje excedente, en un 50 por ciento del salario mínimo general diario vigente en el Estado.
 (REFORMADO, P.O. 7 DE ABRIL DE 1989)

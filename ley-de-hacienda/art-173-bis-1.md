@@ -5,6 +5,10 @@ Los causantes que inicien operaciones dentro del mismo año en que hagan su soli
 II.- La Sub-Secretaría de Ingresos fijará la cuota que corresponda, aplicando la Tarifa del Artículo 173 de esta Ley sobre la base del promedio de ingreso bruto mensual manifestado por el causante, menos el 20% de deducción global a que se refiere el Artículo 171 de esta misma Ley;
 III.- La cuota asignada podrá cubrirse por períodos bimestrales, dentro de los primeros diez días del mes siguiente a cada bimestre, o por bimestres adelantados;
 IV.- Los causantes que tributen a base de cuota fija, no estarán obligados a presentar declaraciones mensuales ni a llevar los libros o registros que previene este Capítulo, pero sí estarán sujetos a las demás disposiciones contenidas en esta Ley;
-V.- La cuota asignada tendrá vigencia hasta el 31 de Diciembre de cada año independientemente de la fecha de su asignación o notificación.
+V.- La cuota asignada tendrá vigencia hasta el 31 de Diciembre de cada año independientemente de la fecha de su asignación o notificación;
+(ADICIONADA, P.O. 7 DE FEBRERO DE 1990)
+VI.- Los contribuyentes que tributen a base de cuota fija, pagarán una cuota mínima de impuesto principal equivalente a 3 días de salario mínimo general, que esté vigente en el Estado de Sinaloa en el mes a que corresponda la cuota a pagar;
+(ADICIONADA, P.O. 7 DE FEBRERO DE 1990)
+VII.- Cuando el ingreso efectivamente percibido resulte superior en más de un 20% al ingreso que se tomó como base para fijar la cuota, el contribuyente pagará la diferencia que resulte mediante una declaración complementaria que deberá presentar ante la Recaudación de Rentas de su domicilio dentro de los primeros 10 días del mes siguiente de aquél a que corresponda el ingreso percibido.
 CAPITULO XI
 Impuesto sobre Plantas de Beneficio y Establecimientos Metalúrgicos
