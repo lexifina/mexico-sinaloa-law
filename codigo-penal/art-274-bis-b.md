@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE AGOSTO DE 2003)
+ARTICULO 274 BIS B.- Las penas previstas en los artículos 274 Bis y 274 Bis A se aumentarán hasta una mitad cuando el delincuente tenga parentesco por consanguinidad, por afinidad o civil con la víctima, sea su tutor o curador o habite en el mismo domicilio con ella, aunque no existiera parentesco alguno; asimismo perderá la patria potestad respecto del ofendido y el derecho que pudiera tener respecto a los bienes de éste, en su caso.

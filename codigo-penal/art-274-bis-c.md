@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE AGOSTO DE 2003)
+ARTICULO 274 BIS C.- Si en la comisión de los delitos previstos en este capítulo se emplease la violencia, o el agente se valiese de la función pública que desempeña o aproveche los medios o circunstancias que le proporciona la profesión, oficio o cargo que ejerza, la pena se agravará en una mitad más y se le destituirá del empleo, cargo o comisión pública e inhabilitará para ocupar o ejercer otro similar, o se le suspenderá en el ejercicio de la profesión, según sea el caso.
