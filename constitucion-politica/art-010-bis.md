@@ -1,2 +1,1 @@
-(ADICIONADO, P.O. 27 DE OCTUBRE DE 1938)
-Art. 10 Bis. Tienen derecho a votar y a ser votadas en las elecciones generales del Estado y municipales, las mujeres Sinaloenses que hayan cumplido dieciocho años, si son casadas, o veintiuno si no lo son, siempre que vivan de su trabajo honesto; que formen parte de la familia de un obrero o campesino organizado, o de la familia de un trabajador del campo o de la ciudad.
+Art. 10 Bis. (DEROGADO, P.O. 26 DE ENERO DE 1950)
