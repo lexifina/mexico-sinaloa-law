@@ -1,0 +1,5 @@
+P.O. 18 DE JUNIO DE 2001.
+Artículo Primero.- El presente decreto comenzará a surtir efectos al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+Artículo Segundo.- El Congreso del Estado por conducto de su Comisión de Derechos Humanos, convocará en los términos que la ley disponga a las organizaciones sociales y organismos dedicados a la protección y defensa de los derechos humanos en el Estado, a la elección de las actuales vacantes de consejeros del Consejo Consultivo de la Comisión Estatal de los Derechos Humanos.
+Artículo Tercero.- En tanto el Congreso del Estado expide las reformas a la Ley de la Comisión Estatal de los Derechos Humanos, ésta ejercerá sus atribuciones y competencia conforme a lo dispuesto por el presente decreto y ley reglamentaria vigente hasta dicha expedición.
+Artículo Cuarto.- El ejercicio de las funciones y facultades del Presidente y de los Consejeros actuales que integran el Consejo Consultivo de la Comisión Estatal de Derechos Humanos concluirá al término del periodo para el cual fue electo el primero.
