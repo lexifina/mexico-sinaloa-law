@@ -23,3 +23,4 @@ El Gobernador Constitucional del Estado
 Lic. Alfredo Valdés Montoya.
 El Oficial Mayor en funciones de Secretario General de Gobierno
 Lic. Eduardo Niebla Alvarez.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
