@@ -17,3 +17,4 @@ ARTICULO QUINTO.- Las obligaciones de Registros, Autorizaciones, Avisos y presen
 Es dado en el Palacio del Poder Legislativo del Estado, en la ciudad de Culiacán Rosales, Sinaloa, a los cinco días del mes de octubre de mil novecientos setenta y ocho. D. P. TELESFORO MICHEL SOTO (Rúbrica); D.S. PROFR. ARTURO GARCIA LOYA (Rúbrica); D.S. ROMULO PADILLA ASTORGA (Rúbrica).
 Por lo tanto, mando se imprima, publique, circule y se le de el debido cumplimiento.
 Es dado en el Palacio del Poder Ejecutivo, de la ciudad de Culiacán de Rosales, Sinaloa, México, a los nueve días del mes de Noviembre de mil novecientos setenta y ocho. El Gobernador Constitucional del Estado ALFONSO G. CALDERÓN (Rúbrica); El Secretario General de Gobierno LIC. MARCO ANTONIO ARROYO CAMBERO (Rubrica); El Secretario de Finanzas del Estado C. P. ROBERTO WONG LEAL (Rúbrica).
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY
