@@ -1,8 +1,8 @@
 (REFORMADO PRIMER PARRAFO, P.O. 6 DE MARZO DE 1962)
 Art. 116 Bis. Para ser Presidente Municipal, Propietario y Suplente, respectivamente, además de los requisitos que para ser Regidor se requieren, es necesario tener lo siguiente:
-(ADICIONADO, P.O. 6 DE OCTUBRE DE 1928)
+(ADICIONADA, P.O. 6 DE OCTUBRE DE 1928)
 I. 25 años cumplidos en la fecha de la elección.
-(ADICIONADO, P.O. 6 DE OCTUBRE DE 1928)
+(ADICIONADA, P.O. 6 DE OCTUBRE DE 1928)
 II. Haber obtenido mayoría de sufragios legales.
 (REFORMADA, P.O. 7 DE ABRIL DE 1953) (F. DE E., P.O. 14 DE ABRIL DE 1953)
 III. No haber sido Secretario General de Gobierno, Tesorero General del Estado, miembro del Supremo Tribunal de Justicia del mismo, Juez de 1ra. Instancia, Recaudador de Rentas o Presidente Municipal, dentro de la juriscción (sic), ni haber tenido mando de fuerza de la Federación, del Estado o del Municipio dentro de los seis meses anteriores al día de la elección.
