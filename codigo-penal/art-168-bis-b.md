@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 22 DE AGOSTO DE 2001)
+ARTICULO 168 BIS B.- Se impondrá de cinco a quince años de prisión y quinientos a mil días multa a quien administre, custodie, cambie, deposite, dé en garantía, invierta, transporte o transfiera recursos o bienes de cualquier naturaleza, con conocimientos de que proceden o representan el producto de un secuestro, con alguno de los siguientes propósitos: ocultar o pretender ocultar, encubrir o impedir conocer el origen, localización, destino o propiedad de dichos recursos, derechos o bienes, o alentar alguna actividad ilícita.
