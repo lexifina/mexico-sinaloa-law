@@ -3,4 +3,4 @@ ART. 334 Bis D.- Los ingresos que se recauden por concepto de las cuotas y los d
 La parte de los ingresos que exceda el límite señalado en el párrafo anterior, no tendrá fin específico.
 (REFORMADA SU DENOMINACION, P.O. 12 DE OCTUBRE DE 1990)
 CAPITULO XIV
-Fiscalización en Obra Pública Directa
+Fiscalizacion en Obra Pública Directa
