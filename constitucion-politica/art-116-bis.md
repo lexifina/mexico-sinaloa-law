@@ -1,12 +1,1 @@
-(REFORMADO PRIMER PARRAFO, P.O. 2 DE ENERO DE 1981)
-Art. 116 Bis. Para ser Presidente Municipal Propietario y Suplente, respectivamente, además de los requisitos que para ser Regidor se requieren, es necesario tener los siguientes:
-(ADICIONADA, P.O. 6 DE OCTUBRE DE 1928)
-I. 25 años cumplidos en la fecha de la elección.
-(ADICIONADA, P.O. 6 DE OCTUBRE DE 1928)
-II. Haber obtenido mayoría de sufragios legales.
-(REFORMADA, P.O. 2 DE ENERO DE 1981)
-III. No haber sido Secretario, Sub-Secretario o Titular de cualesquiera de las Entidades de la Administración Pública Estatal y Paraestatal; Magistrado del Supremo Tribunal de Justicia, Procurador General de Justicia; Juez de Primera Instancia, Recaudador de Rentas, Presidente Municipal en los Distritos Electorales en donde ejerzan sus funciones; Coronel o General del Ejército Nacional o Jefe de la Fuerza del Estado o de Policía por el Distrito o Distritos Electorales en donde ejerza mando o donde estuvieren en servicio; Jefe de la Guardia Nacional que estuviere en servicio activo, por el Distrito o Distritos donde ejerza mando o Ministro de Cualquier culto. Los ciudadanos antes referidos, con excepción de los Ministros de cultos, podrán ser electos, siempre que se separen de sus cargos cuando menos 90 días antes de la elección.
-(ADICIONADA [N. DE E. REFORMADA], P.O. 9 DE ABRIL DE 1938)
-IV. Los Presidentes Municipales y Regidores Propietarios de los Ayuntamientos, no podrán ser electos para el período inmediato. Las personas que por elección indirecta o por nombramiento o designación en los términos de esta Constitución, desempeñan las funciones propias de esos cargos, cualquiera que sea la denominación que se les dé, no podrán ser electos popularmente para el período inmediato. Todos los funcionarios antes mencionados, cuando tengan el carácter de propietario no podrán ser electos para el período inmediato con el carácter de suplentes, pero los que tengan el carácter de suplente, sí podrán ser electos para el período inmediato como propietarios, a menos que hayan estado en ejercicio en el segundo año del período respectivo.
-(REFORMADA, P.O. 6 DE MARZO DE 1962)
-V. Ser originario de la Municipalidad que lo elige o vecino de ella cuando menos cinco años anteriores a la elección, siempre que sea ciudadano Sinaloense por nacimiento o por vecindad, con residencia efectiva en el Estado en este último caso, no menor de diez años inmediatamente anteriores al día de la elección.
+Art. 116 Bis. (DEROGADO, P.O. 27 DE ENERO DE 1984)
