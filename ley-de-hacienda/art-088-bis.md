@@ -1,4 +1,3 @@
-(ADICIONADO, P.O. 3 DE DICIEMBRE DE 1980)
-ART. 88 Bis.- Mientras se mantenga en vigor el anexo No. 3, al Convenio de Adhesión al Sistema Nacional de Coordinación Fiscal, celebrada entre el Gobierno del Estado de Sinaloa y la Secretaría de Hacienda y Crédito Público, para recibir participaciones en los términos de la Ley de Coordinación Fiscal, se suspende la aplicación de las disposiciones fiscales contenidas en el inciso a) de la Fracción II del Artículo 78, la Fracción II del Artículo 79, la Fracción III del Artículo 85, el Artículo 86 y 87 de este Capítulo, en consecuencia, los sujetos pasivos a que se refiere el segundo párrafo de la Fracción I del Artículo 77 cubrirán este impuesto conforme a la base establecida en el inciso b) de la Fracción II del Artículo 78 de esta Ley.
+ART. 88 Bis.- (DEROGADO, P.O. 6 DE FEBRERO DE 1984)
 CAPITULO II
 Impuesto Estatal sobre Ingresos Mercantiles
