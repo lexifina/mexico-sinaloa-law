@@ -3,8 +3,8 @@ ARTICULO PRIMERO.- La presente Ley entrará en vigor en los Municipios a que se 
 (REFORMADO, P.O. 20 DE FEBRERO DE 1991)
 ARTICULO SEGUNDO.- Se deroga en los Municipios de Ahome, El Fuerte, Choix, Guasave, Sinaloa, Mocorito, Angostura, Salvador Alvarado, Badiraguato, Culiacán, Navolato, Cosalá, Elota, San Ignacio, Mazatlán, Concordia, Rosario y Escuinapa, la Ley de Hacienda Municipal contenida en el Decreto número 87, publicada en el Periódico Oficial "El Estado de Sinaloa" número 157 de fecha 31 de Diciembre de 1966.
 ARTICULO TERCERO.- (DEROGADO, P.O. 31 DE ENERO DE 1992)
-(REFORMADO PRIMER PARRAFO, P.O. 31 DE ENERO DE 1992)
-ARTICULO CUARTO.- Durante 1992 en aquellas poblaciones en que las revaluaciones catastrales hayan entrado o entren en vigor a partir del 1° de enero de 1990 hasta el 31 de diciembre de 1992, el Impuesto Predial Urbano se determinará conforme a la tarifa contenida en la fracción I del artículo 52 de esta Ley, tomando como base para sus pagos:
+(REFORMADO PRIMER PARRAFO, P.O. 31 DE DICIEMBRE DE 1992)
+ARTICULO CUARTO.- Durante 1993 en aquellas poblaciones en que las revaluaciones catastrales hayan entrado o entren en vigor a partir del 1° de enero de 1990 hasta el 31 de diciembre de 1993, el Impuesto Predial urbano se determinará conforme a la tarifa contenida en la fracción I del Artículo 52 de esta Ley, tomando como base para sus pagos:
 (REFORMADO, P.O. 20 DE FEBRERO DE 1991)
 I.- El 65% del monto que resulte para los inmuebles cuyo valor catastral establecen los incisos a), b), c), d), e), f) y g).
 (REFORMADO, P.O. 20 DE FEBRERO DE 1991)
@@ -12,15 +12,15 @@ II.- El 60% para el inciso h); y
 (REFORMADO, P.O. 20 DE FEBRERO DE 1991)
 III.- El 50% para el inciso i).
 Al hacer efectivas las reducciones a que se refiere el párrafo que precede en ningún caso el impuesto total a pagar será menor al que resulte mayor de la Fracción que le antecede.
-(REFORMADO, P.O. 31 DE ENERO DE 1992) (F. DE E., P.O. 5 DE FEBRERO DE 1992)
-Además para el ejercicio fiscal de 1992, los contribuyentes obligados al pago del Impuesto Predial sobre fincas urbanas habitadas exclusivamente por su propietario tendrán derecho a reducir del impuesto que resulte, el porcentaje según la fecha de la revaluación catastral que en determinada población haya entrado en vigor, en los términos siguientes:
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 1992)
+Además para el Ejercicio Fiscal de 1993, los contribuyentes obligados al pago del Impuesto Predial sobre fincas urbanas habitadas exclusivamente por su propietario tendrán derecho a reducir del impuesto que resulte, el porcentaje según la fecha de la revaluación catastral que en determinada población haya entrado en vigor, en los términos siguientes:
 POBLACION CUYA REVALUACION
 ENTRO EN VIGOR EN:REDUCCION:
-1992El 50% del impuesto a pagar
-1991El 40% del impuesto a pagar
-1990El 30% del impuesto a pagar
-1989El 20% del impuesto a pagar
-1988El 10% del impuesto a pagar
+1993El 50% del impuesto a pagar
+1992El 40% del impuesto a pagar
+1991El 30% del impuesto a pagar
+1990El 20% del impuesto a pagar
+1989El 10% del impuesto a pagar
 (DEROGADO CUARTO PARRAFO, P.O. 31 DE ENERO DE 1992)
 (REFORMADO, P.O. 20 DE FEBRERO DE 1991)
 La casa habitación propiedad de pensionados o jubilados o de sus cónyuges con valor hasta de 10,000 veces el salario mínimo general diario, pagarán un importe como cuota fija de 3 veces el salario mínimo general diario al año, previa comprobación a satisfacción de la Tesorería Municipal en la que corresponda hacer el pago de su calidad de jubilado o pensionado, así como de que ellos habitan la propiedad objeto de este Artículo. Cuando la casa habitación tenga un valor superior a 10,000 veces el salario mínimo general diario, el impuesto se causará mediante la aplicación de la siguiente:
@@ -35,12 +35,12 @@ c). Más de 15,000 a 40,0004810
 d) Más de 40,00034816
 (ADICIONADO, P.O. 31 DE ENERO DE 1992) (F. DE E., P.O. 5 DE FEBRERO DE 1992)
 Quedan incluídos en el beneficio señalado en este Artículo, las personas físicas de nacionalidad extranjera que residan en el Municipio de Mazatlán y que habiten personalmente el predio urbano respectivo adquirido a través de fideicomiso previamente constituído ante la Institución Bancaria correspondiente y que aparezca como fideicomisario en dicho contrato. Quedan exceptuadas de este beneficio, las personas morales de nacionalidad extranjera que tengan sus propiedades legalmente constituídas.
-(ADICIONADO, P.O. 31 DE ENERO DE 1992) (F. DE E., P.O. 5 DE FEBRERO DE 1992)
-Durante 1992, los eventos comprendidos en el numeral 2 del artículo 12 de esta Ley que sean organizados y realizados por los Comités de Desarrollo, el DIF, o Instituciones de Asistencia Social pagarán el 7.5% sobre el Ingreso Total.
-(ADICIONADO, P.O. 31 DE ENERO DE 1992) (F. DE E., P.O. 5 DE FEBRERO DE 1992)
-Para 1992, en el municipio de Mazatlán, los predios urbanos que se encuentran en el supuesto que señala el artículo 16 de esta Ley, no gozarán de los beneficios que se establecen en el segundo párrafo de este artículo transitorio, debiendo cubrir el Impuesto Predial en los términos de la tarifa del artículo 52, fracción I de esta Ley.
-(REFORMADO, P.O. 31 DE ENERO DE 1992)
-ARTICULO QUINTO.- Durante el ejercicio fiscal de 1992, aquellos contribuyentes que hayan realizado el pago de algún trimestre, o bien el pago total anual del Impuesto Predial, previamente a la entrada en vigor de la presente modificación a la Ley, no se les cobrarán las diferencias a que se refiere el último párrafo del Artículo 57, cuando éstas resulten con motivo de la aplicación de la tarifa contenida en la fracción I del Artículo 52, pero procederá la reintegración de diferencias cuando éstas resulten a favor del contribuyente.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 1992)
+Durante 1993, los eventos comprendidos en el numeral 2 del artículo 12 de esta ley que sean organizados y realizados por los Comités de Desarrollo, el DIF, o Instituciones de Asistencia Social pagarán el 7.5% sobre el ingreso total.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 1992)
+Para 1993, en el Municipio de Mazatlán, los predios urbanos que se encuentran en el supuesto que señala el artículo 16 de esta Ley, no gozarán de los beneficios que se establecen en el segundo párrafo de este artículo transitorio, debiendo cubrir el Impuesto Predial en los términos de la tarifa del artículo 52, fracción I de esta Ley.
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 1992)
+ARTICULO QUINTO.- Durante el Ejercicio Fiscal de 1993, aquellos contribuyentes que hayan realizado el pago de algún trimestre, o bien el pago total anual del impuesto predial, previamente a la entrada en vigor de la presente modificación a la Ley, no se les cobrarán las diferencias a que se refiere el último párrafo del artículo 57, cuando éstas resulten con motivo de la aplicación de la tarifa contenida en la fracción I del Artículo 52, pero procederá la reintegración de diferencias cuando éstas resulten a favor del contribuyente.
 ARTICULO SEXTO.- (DEROGADO, P.O. 31 DE ENERO DE 1992)
 (ADICIONADO, P.O. 21 DE ENERO DE 1991)
 ARTICULO SEPTIMO.- Para el Municipio de Mazatlán durante el año de 1991, se considerará lo siguiente:
