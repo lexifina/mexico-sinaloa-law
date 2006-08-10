@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 9 DE AGOSTO DE 2006)
+ARTICULO 25 BIS.- Para ser sujetas de incentivos fiscales previstos por esta Ley, las actividades de las personas físicas o morales de nivel microindustrial, proyectos de turismo alternativo y de aquéllas con proyectos en apoyo al desarrollo de Centros Históricos, deberán de generar por lo menos 5 empleos permanentes y/o realizar una inversión cuyo monto deberá ser igual o mayor al equivalente a 50,000 UDI'S. La tabla de incentivos que se tomará como base será la No. III.
