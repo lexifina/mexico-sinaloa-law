@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 21 DE OCTUBRE DE 1998)
-ARTICULO 207 Bis.- Se impondrán las mismas penas del artículo anterior al que a sabiendas y con independencia de las penas que le corresponda por la comisión de otros delitos:
+ARTICULO 207 BIS.- Se impondrán las mismas penas del artículo anterior al que a sabiendas y con independencia de las penas que le corresponda por la comisión de otros delitos:
 I.- Desmantele algún o algunos vehículos robados o comercialice conjunta o separadamente sus partes;
 II.- Enajene o trafique de cualquier manera con vehículo o vehículos robados;
 III.- Detente, posea o custodie sin derecho, la documentación que acrediten la propiedad o identificación de un vehículo robado o bien, la altere o modifique de cualquier manera;
