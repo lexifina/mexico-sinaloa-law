@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE OCTUBRE DE 2007)
+ARTICULO 274 BIS D.- Al que teniendo conocimiento directo de la comisión de alguna de las conductas de corrupción o explotación de menores, de pornografía infantil o de prostitución de menores tipificadas en el presente capítulo, no las denuncie ante las autoridades preventivas o investigadoras de los delitos, se les impondrán de tres meses a un año de prisión o de cincuenta a doscientos días multa.
