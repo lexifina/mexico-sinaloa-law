@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 5 DE OCTUBRE DE 2007)
+ARTICULO 207 BIS A.- Al que elabore o altere sin permiso de la autoridad competente una placa, el engomado, la tarjeta de circulación o los demás documentos oficiales que se expiden para identificar vehículos automotores, se le impondrán de cuatro a ocho años de prisión y de doscientos ochenta a cuatrocientos cincuenta días multa.
+Las mismas penas se impondrán al que posea, utilice, adquiera o enajene, cualquiera de los objetos a que se refiere el párrafo anterior, a sabiendas de que sean robados, falsificados u obtenidos indebidamente.
+Igualmente se impondrán dichas penas a quien, a sabiendas utilice para un vehículo robado o que se encuentre ilegalmente en el país, las placas, el engomado o los demás documentos oficiales expedidos para identificar otro vehículo.
