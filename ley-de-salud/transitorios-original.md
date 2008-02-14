@@ -22,3 +22,4 @@ El Secretario General de Gobierno
 Gonzalo M. Armienta Calderón.
 El Secretario de Salud
 Víctor Manuel Díaz Simental.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY
