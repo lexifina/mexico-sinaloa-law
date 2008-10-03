@@ -1,0 +1,3 @@
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA EL CODIGO.
+(ADICIONADO, P.O. 4 DE AGOSTO DE 2008)
+Artículo 255 Bis. En las acciones de naturaleza real, o en las que se cuestione el dominio o los derechos relacionados con inmuebles, el actor podrá solicitar que la demanda se inscriba preventivamente en el Registro Público de la Propiedad correspondiente, a fin de prevenir a los terceros de que el bien se encuentra sujeto a litigio. El juez ordenará la inscripción, previo otorgamiento de una caución equivalente al veinte por ciento del valor catastral de los bienes, para garantizar el pago de los daños y perjuicios que la medida pueda causar a quien figura como dueño en el Registro.

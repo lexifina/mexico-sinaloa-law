@@ -1,0 +1,4 @@
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VER ARTICULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA EL CODIGO.
+(ADICIONADO, P.O. 4 DE AGOSTO DE 2008)
+Artículo 564 Bis. Cuando el monto líquido de la condena fuere superior al valor de los bienes que son materia de la ejecución, debidamente valorizados, y en tratándose de bienes raíces del certificado de gravámenes no aparezcan otros acreedores, el ejecutante podrá optar por la adjudicación directa en su favor de dichos bienes, al valor fijado en el avalúo. El auto que niegue, o el que conceda la adjudicación, es apelable en ambos efectos, pudiendo el tribunal de alzada en este último caso suplir la deficiencia de los agravios, cuando advierta una violación manifiesta del procedimiento ejecutivo, que afecte gravemente los derechos del ejecutado.
+Si se trata de copropiedad, en todo caso previamente deberá notificarse al copropietario conforme a lo previsto por el artículo 971 del Código Civil.
