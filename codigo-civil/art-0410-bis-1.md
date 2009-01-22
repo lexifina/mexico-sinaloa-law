@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 2 DE FEBRERO DE 2001)
-Artículo 410 Bis-1.- La adopción plena es irrevocable y extingue la filiación preexistente entre el adoptado y sus progenitores y el parentesco con las familias de éstos, salvo para los impedimentos de matrimonio. En el supuesto de que el adoptante esté casado con alguno de los progenitores del adoptado no se extinguirán los derechos, obligaciones y demás consecuencias jurídicas que resultan de la filiación consanguínea.
+(REFORMADO, P.O. 21 DE ENERO DE 2009)
+Artículo 410 Bis-1.- La adopción plena es irrevocable y extingue la filiación preexistente entre el adoptado y sus progenitores y el parentesco con las familias de éstos, salvo para los impedimentos de matrimonio. En el supuesto de que el adoptante está casado o tenga una relación de concubinato con alguno de los progenitores del adoptado no se extinguirán los derechos, obligaciones y demás consecuencias jurídicas que resultan de la filiación consanguínea.
