@@ -1,0 +1,1 @@
+Artículo Segundo.- La Comisión Estatal de Derechos Humanos del Estado de Sinaloa operará el área correspondiente a la observancia dando seguimiento, evaluación y monitoreo, en las materias que expresamente le confiere esta Ley y en las que le sea requerida su opinión, al siguiente día de la entrada en vigor del presente decreto.
