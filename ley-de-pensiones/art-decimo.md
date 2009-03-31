@@ -1,0 +1,2 @@
+Artículo Décimo.- Para los trabajadores en transición que no migren al nuevo sistema de pensiones de cuentas individuales, se entenderá por salario regulador al salario diario sujeto a cotización en el momento en que tengan derecho a una pensión, en cuyo caso, no podrá ser superior al importe de diesiséis (sic) salarios mínimos generales diarios, aplicables en el Estado de Sinaloa.
+El monto de las pensiones que se otorguen, no podrá ser mayor en ningún caso, al importe de diesiséis (sic) salarios mínimos generales diarios, aplicables en el Estado, elevados al mes.

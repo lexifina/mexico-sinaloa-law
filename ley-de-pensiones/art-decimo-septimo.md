@@ -1,0 +1,1 @@
+Artículo Décimo Séptimo.- Los cónyuges supérstites, concubina o concubino, tendrán derecho a disfrutar de la pensión mientras no contraigan nuevo matrimonio o establezcan una nueva relación de concubinato.

@@ -1,0 +1,4 @@
+Artículo Octavo.- A los trabajadores referidos en el artículo anterior, y que opten por migrar al sistema de cuentas individuales previstos en esta Ley, que les sean reconocidos sus años de servicio, a la fecha de incorporación del empleador, les serán reconocidos como años de cotización, siempre y cuando los empleadores acrediten ante el Instituto el tiempo laborado, mediante la documentación e información requerida para tal efecto.
+Si con motivo del reconocimiento de antigüedad, el trabajador adquiere el derecho a una pensión mayor de su renta vitalicia los empleadores deberán aportar de manera extraordinaria las diferencias que resulten entre la renta vitalicia y la pensión a que se tenga derecho.
+Los trabajadores que se encuentren en dicho supuesto, al migrar al nuevo sistema, ya no serán considerados trabajadores en transición.
+TRABAJADORES EN TRANSICIÓN QUE NO MIGREN AL SISTEMA DE PENSIONES DE CUENTAS INDIVIDUALES

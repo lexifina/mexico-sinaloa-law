@@ -1,0 +1,1 @@
+Artículo Primero.- El presente Decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial "El Estado de Sinaloa", con excepción de lo dispuesto en los siguientes artículos transitorios que correspondan.

@@ -1,0 +1,1 @@
+Artículo Segundo.- Se derogan del Título Sexto "Previsión y Seguridad Social", el Capítulo III denominado "Jubilación y Pensiones", con sus artículos 92, 93, 94, 95, 96, 97, 98, 99, 100, 101, 102, 103, 104, 105 y 106, todos de la Ley de los Trabajadores al Servicio del Estado de Sinaloa y las demás disposiciones que se opongan a la presente Ley.

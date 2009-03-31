@@ -1,0 +1,1 @@
+Artículo Séptimo.- Los trabajadores en transición tienen derecho a optar por el régimen establecido en los artículos transitorios o migrar al sistema previsto en esta Ley, mediante la acreditación de bonos de pensión en su cuenta individual.

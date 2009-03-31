@@ -1,0 +1,1 @@
+Artículo Cuarto.- Los trabajadores que estén prestando servicios a la fecha de entrada en vigor de la presente Ley quedarán sujetos a lo establecido en los artículos transitorios de este Decreto, que les resulten aplicables.
