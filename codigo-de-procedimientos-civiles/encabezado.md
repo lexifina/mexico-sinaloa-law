@@ -1,4 +1,4 @@
-CODIGO DE PROCEDIMIENTOS CIVILES PARA EL ESTADO DE SINALOA
+CÓDIGO DE PROCEDIMIENTOS CIVILES PARA EL ESTADO DE SINALOA
 Código publicado en el Suplemento del Periódico Oficial "El Estado de Sinaloa", el martes 22 de octubre de 1940.
 El ciudadano Coronel ALFREDO DELGADO, Gobernador Constitucional del Estado Libre y Soberano de Sinaloa, a sus habitantes hace saber:
 Que por el H. Congreso del mismo, se le ha comunicado lo siguiente:
