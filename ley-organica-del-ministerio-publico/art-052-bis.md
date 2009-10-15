@@ -1,5 +1,4 @@
-(ADICIONADO CON LOS ARTICULOS QUE LO INTEGRAN, P.O. 3 DE OCTUBRE DE 2007)
+(DEROGADO CON LOS ARTICULOS QUE LO INTEGRAN, P.O. 14 DE OCTUBRE DE 2009)
 CAPITULO XI BIS
 DE LA UNIDAD DE CONTROL DE CONFIANZA
-(ADICIONADO, P.O. 3 DE OCTUBRE DE 2007)
-Artículo 52 Bis. La Unidad de Control de Confianza estará a cargo de un Jefe, quien será nombrado y removido directamente por el Procurador General de Justicia.
+Artículo 52 Bis. (DEROGADO, P.O. 14 DE OCTUBRE DE 2009)
