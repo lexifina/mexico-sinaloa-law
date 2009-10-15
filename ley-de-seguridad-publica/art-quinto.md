@@ -1,0 +1,2 @@
+ARTÍCULO QUINTO.- Los sistemas de información, recursos humanos, materiales, financieros y documentales, que deban ser transferidos de una entidad a otra, se harán bajo las disposiciones que rigen el proceso de entrega-recepción para la administración pública.
+Los recursos humanos, materiales, financieros y documentales de la Unidad de Control de Confianza, prevista en la Ley Orgánica del Ministerio Público, que se deroga de acuerdo a lo señalado en este Decreto, se transferirán al Centro Estatal de Evaluación y Control de Confianza.

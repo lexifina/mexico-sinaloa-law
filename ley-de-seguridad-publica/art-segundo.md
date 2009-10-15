@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley de Seguridad Pública del Estado de Sinaloa, publicada en el Periódico Oficial "El Estado de Sinaloa" No. 89, de fecha 25 de julio de 2001 y se derogan las demás disposiciones legales y reglamentarias que se opongan a la presente Ley.

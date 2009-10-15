@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO.- El Secretario Ejecutivo del Consejo y los Consejeros Ciudadanos que actualmente integran la Coordinación General del mismo, continuarán en su encargo, hasta en tanto concluyan el período para el que fueron designados. El Presidente del Consejo emitirá, en su caso, los nombramientos correspondientes en los términos de este artículo.

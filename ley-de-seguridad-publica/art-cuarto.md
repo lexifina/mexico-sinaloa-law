@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO.- Los servicios privados de seguridad se seguirán prestando conforme a la Ley de Seguridad Pública del Estado de Sinaloa que se abroga, hasta en tanto se expidan las disposiciones respectivas, las que deberán aprobarse dentro del plazo de un año.
