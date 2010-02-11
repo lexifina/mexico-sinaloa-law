@@ -16,3 +16,4 @@ El Gobernador Constitucional del Estado
 Lic. Jesús A. Aguilar Padilla.
 El Secretario General de Gobierno
 Lic. Rafael Oceguera Ramos.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
