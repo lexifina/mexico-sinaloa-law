@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PARRAFO, P.O. 5 DE OCTUBRE DE 2007)
-ARTICULO 207 BIS.- Se sancionará con pena de dos a quince años de prisión y de trescientos cincuenta a quinientos días multa al que a sabiendas y con independencia de las penas que le corresponda por la comisión de otros delitos:
+(REFORMADO PRIMER PARRAFO, P.O. 8 DE SEPTIEMBRE DE 2010)
+ARTICULO 207 BIS.- Se sancionará con pena de cinco a quince años de prisión y de trescientos cincuenta a quinientos días multa al que a sabiendas y con independencia de las penas que le corresponda por la comisión de otros delitos:
 (ADICIONADA, P.O. 21 DE OCTUBRE DE 1998)
 I.- Desmantele algún o algunos vehículos robados o comercialice conjunta o separadamente sus partes;
 (ADICIONADA, P.O. 21 DE OCTUBRE DE 1998)
