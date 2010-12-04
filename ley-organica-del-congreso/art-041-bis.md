@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 1 DE DICIEMBRE DE 2010)
+ARTICULO 41 Bis.- La Mesa Directiva funcionará como órgano colegiado, bajo la coordinación de su Presidente; adoptará sus decisiones por consenso y, en caso de no lograrse el mismo, mediante mayoría resultante del voto ponderado de sus integrantes, en el cual el Diputado que esté facultado para ello, representará tantos votos como integrantes tenga su Grupo Parlamentario.
