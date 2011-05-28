@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 27 DE MAYO DE 2011)
+ARTICULO 168 Bis C.- Se aplicará pena de dos a ocho años de prisión, y de doscientos a mil días multa, al servidor público que:
+I. Divulgue, sin motivo fundado, información reservada o confidencial, relacionada con las conductas de delito de secuestro sancionadas por este código, salvo que se refiera a la información o imágenes obtenidas en una intervención de comunicación privada, en este caso se aplicará lo dispuesto por el Código Penal Federal; o
+II. Revele, sin motivo fundado, técnicas aplicadas a la investigación o persecución de las conductas de delito de secuestro previstas por este código.
+Si el sujeto es o hubiere sido integrante de una institución de seguridad pública, de procuración de justicia, de los centros de reclusión preventiva o penitenciaria, la pena será de cuatro años seis meses a trece años de prisión, así como también, la multa y el tiempo de colocación de dispositivos de localización y vigilancia se incrementarán desde un tercio hasta dos terceras partes.

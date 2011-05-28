@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE MAYO DE 2011)
+Artículo 132 Bis C.- Los procesados o sentenciados por los delitos de secuestro que proporcionen datos fehacientes o suficientes elementos de convicción para la detención de los demás participantes, podrán beneficiarse con medidas de protección durante el tiempo y bajo las modalidades que se estime necesario. Además, se asegurará su reclusión y ejecución de sentencia, en establecimientos distintos a aquel en donde compurguen su sentencia los miembros del mismo grupo delictivo.

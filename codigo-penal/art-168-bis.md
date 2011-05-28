@@ -1,4 +1,2 @@
-(ADICIONADO, P.O. 22 DE AGOSTO DE 2001)
-ARTICULO 168 BIS.- Se impondrán las mismas penas que previene el artículo 167 a quien:
-I.- Aporte recursos económicos o de cualquier especie, o colabore de cualquier manera para que se lleve a cabo el secuestro; y,
-II.- A sabiendas, revele datos o información reservada que conoce o ha recibido con motivo de su empleo, cargo o relación con el sujeto pasivo, para la realización del secuestro.
+(REFORMADO, P.O. 27 DE MAYO DE 2011)
+ARTICULO 168 Bis.- Se impondrá pena de cien a trescientas cincuenta jornadas de trabajo a favor de la comunidad, al que simule por sí o por interpósita persona, la privación de su libertad con alguno de los propósitos señalados en el artículo 167 del presente código.

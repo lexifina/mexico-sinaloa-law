@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE MAYO DE 2011)
+Artículo 63 Bis. En el caso del delito de secuestro no procederá la reserva del expediente, aún si de las diligencias practicadas no resultan elementos bastantes para hacer la consignación a los tribunales y no aparece que se puedan practicar otras. La policía, bajo la conducción y mando del Ministerio Público, estará obligada en todo momento a realizar las investigaciones tendientes a lograr el esclarecimiento de los hechos.

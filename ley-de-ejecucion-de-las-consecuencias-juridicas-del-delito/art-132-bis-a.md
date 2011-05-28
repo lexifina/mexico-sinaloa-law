@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 27 DE MAYO DE 2011)
+Artículo 132 Bis A.- A los procesados y sentenciados por los delitos de secuestro previstos en el Código Penal para el Estado de Sinaloa, se les podrán aplicar medidas de vigilancia especial por las autoridades competentes, las cuales podrán restringir las comunicaciones de éstos con terceros, salvo el acceso con su defensor.
+Las autoridades competentes, conforme a las disposiciones legales o los convenios al efecto celebrados, podrán remitir a los Centros Federales de Readaptación Social, de otros estados o el Distrito Federal a los procesados o sentenciados por delitos de secuestro, para cumplir la determinación judicial.
+Las diligencias que deban realizarse se llevarán a cabo siempre en las áreas que al efecto existan dentro de los propios centros de reclusión, sin que pueda justificarse para estos efectos traslado alguno, salvo petición del Titular del Ministerio Público o en quien éste delegue dicha atribución.

@@ -1,3 +1,16 @@
-(ADICIONADO, P.O. 11 DE AGOSTO DE 2006)
-ARTICULO 167 BIS.- Comete el delito de privación de la libertad en su modalidad de secuestro instantáneo, el que prive de la libertad a otro por el tiempo estrictamente indispensable para cometer los delitos de robo o extorsión, previstos en los artículos 201 y 231 de este Código o para obtener algún beneficio económico.
-Se le impondrá de siete a veinte años de prisión y de cien a mil días multa, sin perjuicio de las penas que corresponden por los delitos de robo o extorsión y de las reglas de aplicación del concurso para la imposición de sanciones.
+(REFORMADO, P.O. 27 DE MAYO DE 2011)
+ARTICULO 167 Bis.- Las penas a que se refiere el artículo anterior, se agravarán:
+I. De veinticinco a cuarenta y cinco años de prisión y de dos mil a cuatro mil días multa, si en la privación de la libertad concurre alguna o algunas de las circunstancias siguientes:
+a) Que se realice en camino público o en lugar desprotegido o solitario;
+b) Que quienes la lleven a cabo obren en grupo de dos o más personas;
+c) Que se realice con violencia;
+d) Que para privar a una persona de su libertad se allane el inmueble en el que ésta se encuentra;
+e) Que la víctima sea menor de dieciocho años o mayor de sesenta años de edad, o que por cualquier otra circunstancia no tenga capacidad para comprender el significado del hecho o capacidad para resistirlo;
+f) Que la víctima sea una mujer en estado de gravidez.
+II. De veinticinco a cincuenta años de prisión y de cuatro mil a ocho mil días multa, si en la privación de la libertad concurren cualquiera de las circunstancias siguientes:
+a) Que el o los autores sean o hayan sido integrantes de alguna institución de seguridad pública, de procuración o administración de justicia, o de las Fuerzas Armadas Mexicanas, o se ostenten como tales sin serlo;
+b) Que el o los autores tengan vínculos de parentesco, amistad, gratitud, confianza o relación laboral con la víctima o persona relacionada con ésta;
+c) Que durante su cautiverio se cause a la víctima alguna lesión de las previstas en las fracciones IV, V, VI, VII, VIII y IX del artículo 136 de este código;
+d) Que en contra de la víctima se hayan ejercido actos de tortura o violencia sexual;
+e) Que durante o después de su cautiverio, la víctima muera debido a cualquier alteración de su salud que sea consecuencia de la privación de la libertad, o por enfermedad previa que no hubiere sido atendida en forma adecuada por los autores o partícipes del delito.
+Las sanciones señaladas en el presente artículo se impondrán, sin perjuicio o con independencia de las que correspondan por otros delitos que de las conductas a las que se aplican resulten.
