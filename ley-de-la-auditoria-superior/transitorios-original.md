@@ -52,3 +52,4 @@ Rúbrica
 El Secretario de Administración y Finanzas
 Lic. Óscar J. Lara Aréchiga.
 Rúbrica
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.

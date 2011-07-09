@@ -1,0 +1,8 @@
+P.O. 8 DE JULIO DE 2011.
+ARTÍCULO PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+ARTÍCULO SEGUNDO.- La Auditoría Superior del Estado cuenta con diez días naturales para hacer las modificaciones correspondientes en el Reglamento Interior de la misma, contados a partir del día de inicio de su vigencia.
+ARTÍCULO TERCERO.- Para los efectos de lo establecido en el párrafo cuarto del artículo 19 de este Decreto, la Junta de Coordinación Política citará a comparecer ante comisiones al Auditor Superior del Estado en un plazo no mayor a quince días naturales posteriores al inicio de su vigencia.
+Respecto de la comparecencia ante el Pleno del Congreso, la Junta de Coordinación Política citará a una sesión secreta para el desahogo de la misma, dentro de los treinta días naturales posteriores al inicio de su vigencia.
+La bi-anualidad prevista para la comparecencia del titular de la Auditoría regirá a partir de enero de 2012.
+ARTÍCULO CUARTO.- Para el ejercicio de las atribuciones que tiene conferidas la Unidad Técnica de Evaluación, el Congreso del Estado, en su presupuesto anual, deberá contemplar la suficiencia presupuestal para dotar los recursos humanos, financieros y materiales que correspondan al debido cumplimiento de sus atribuciones.
+ARTÍCULO QUINTO.- Para efectos de lo anterior, la Comisión de Fiscalización, expedirá dentro de los 90 días siguientes, contados a partir de la entrada en vigencia del presente Decreto, el Reglamento Interior de la Unidad Técnica de Evaluación de la Auditoría Superior del Estado; cuya estructura y organización se realizará conforme a los principios de transparencia, austeridad, racionalidad y disciplina del gasto público.
