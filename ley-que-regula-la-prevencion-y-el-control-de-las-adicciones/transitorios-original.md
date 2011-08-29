@@ -27,3 +27,4 @@ El Secretario de Administración y Finanzas
 Lic. Quirino Ordaz Coppel
 El Secretario de Salud
 Dr. Héctor Ponce Ramos
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS DEL PRESENTE ORDENAMIENTO.
