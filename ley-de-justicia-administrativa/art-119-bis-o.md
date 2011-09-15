@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 14 DE SEPTIEMBRE DE 2011)
+ARTICULO 119 BIS-O. Para los efectos del Juicio en Línea, son hábiles las 24 horas de los días en que se encuentren abiertas al público las oficinas de las Salas Regionales del Tribunal.
+Las promociones se considerarán, salvo prueba en contrario, presentadas el día y hora que conste en el acuse de recibo electrónico que emita el Sistema de Justicia en Línea del Tribunal, en el lugar en donde el promovente tenga su domicilio fiscal y, por recibidas, en el lugar de la sede de la Sala Regional a la que corresponda conocer del juicio por razón de territorio. Tratándose de un día inhábil se tendrán por presentadas el día hábil siguiente.

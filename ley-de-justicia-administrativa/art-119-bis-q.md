@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 14 DE SEPTIEMBRE DE 2011)
+ARTICULO 119 BIS-Q. Lo dispuesto en el presente capítulo, no será aplicable en la presentación y trámite de los recursos de revisión y juicios de amparo que se promuevan contra las actuaciones y resoluciones derivadas del Juicio en Línea.
+El Secretario General de Acuerdos del Tribunal y los Secretarios de Acuerdos de Salas Regionales según corresponda, deberán imprimir el archivo del expediente electrónico y certificar las constancias del juicio que deban ser remitidos a los Juzgados de Distrito y Tribunales Colegiados de Circuito, cuando se impugnen resoluciones de los juicios correspondientes que les sean asignados.
+Sin perjuicio de lo anterior, y cuando así lo solicite el Juzgado de Distrito o el Tribunal Colegiado, según se trate, podrá remitirse la información a través de medios electrónicos.

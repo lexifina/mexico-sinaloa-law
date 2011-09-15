@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 14 DE SEPTIEMBRE DE 2011)
+ARTICULO 119 BIS-J. Cualquier actuación en el Juicio en Línea, se efectuará a través del Sistema de Justicia en Línea del Tribunal en los términos del presente capítulo. Dichas actuaciones serán validadas con las firmas electrónicas y firmas digitales del Magistrado de la Sala Instructora del juicio y del Secretario de Acuerdos que den fe según corresponda.

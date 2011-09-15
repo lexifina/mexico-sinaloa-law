@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 14 DE SEPTIEMBRE DE 2011)
+ARTICULO 75 BIS-A. En el acuerdo que admita la petición de medidas cautelares, el Magistrado Instructor ordenará correr traslado a quien se impute el acto administrativo o los hechos objeto de la controversia cautelar, pidiéndole un informe que deberá rendir en un plazo de tres días. Si no rinde el informe o si éste no se refiere específicamente a los hechos que le imputen, se tendrán por ciertos.
+Dentro del plazo de tres días contados a partir de que haya recibido el informe o de que haya vencido el término para presentarlo, la Sala Regional dictará resolución en la que decrete o niegue las medidas solicitadas y en su caso, decidirá sobre la admisión de la garantía ofrecida.
+En casos de extrema urgencia, siempre y cuando el promoverte (sic) aporte suficientes elementos para concederla, se podrán otorgar de manera provisional medidas cautelares en el auto admisorio.
+En lo no previsto, serán aplicables todas las disposiciones conducentes en materia de suspensión que se regula en éste capítulo.

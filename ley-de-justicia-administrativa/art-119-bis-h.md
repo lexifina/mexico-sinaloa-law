@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 14 DE SEPTIEMBRE DE 2011)
+ARTICULO 119 BIS-H. Los titulares de una firma electrónica avanzada, clave de acceso y contraseña, serán responsables de su uso, por lo que el acceso o recepción de las notificaciones, la consulta al expediente electrónico y el envío de información mediante la utilización de cualquiera de dichos instrumentos, les serán atribuibles y no admitirán prueba en contrario, salvo que se demuestren fallas del Sistema de Justicia en Línea.
