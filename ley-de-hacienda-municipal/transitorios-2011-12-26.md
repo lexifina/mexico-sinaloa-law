@@ -1,0 +1,4 @@
+P.O. 26 DE DICIEMBRE DE 2011.
+ARTÍCULO PRIMERO.- El presente decreto entrará en vigor al día siguiente al de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+ARTÍCULO SEGUNDO.- Las personas físicas y morales sujetas al pago de este impuesto sobre las realizaciones de juegos con apuestas y sorteos, deberán solicitar su registro ante las autoridades recaudadoras del municipio que corresponda a más tardar 30 días después de la publicación del presente Decreto.
+ARTÍCULO TERCERO.- Los Municipios podrán realizar Convenios de Colaboración Administrativa con el Ejecutivo del Estado para comprobar el cumplimiento de las disposiciones fiscales derivadas del impuesto sobre las realizaciones de juegos con apuestas y sorteos, con base a la Ley de Coordinación Fiscal del Estado de Sinaloa.

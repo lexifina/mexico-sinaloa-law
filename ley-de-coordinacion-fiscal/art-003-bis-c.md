@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 26 DE DICIEMBRE DE 2011)
+ARTICULO 3 BIS C.- En los términos del Artículo 6o, último párrafo de la Ley de Coordinación Fiscal Federal, el Poder Ejecutivo del Estado, 15 días después de que la Secretaría de Hacienda y Crédito Público publique en el Diario Oficial de la Federación el calendario de entrega, porcentajes, fórmulas y variables utilizadas, deberá publicar en el Periódico Oficial "El Estado de Sinaloa", los datos aquí referidos, de las participaciones que el Estado recaba y de las que tenga obligación de participar a sus Municipios.
+También deberá publicar trimestralmente el importe de las participaciones entregadas y, en su caso, el ajuste realizado al término de cada ejercicio fiscal.
