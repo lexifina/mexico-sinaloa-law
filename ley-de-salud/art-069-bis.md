@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 7 DE MARZO DE 2012)
+Artículo 69 Bis. La Secretaría de Salud implementará programas de educación, prevención, información, socialización y detección de cáncer de mama y cérvicouterino de manera permanente en las dependencias y hospitales del sector salud, de tal forma que garantice a las mujeres la realización de exámenes de detección de cáncer de mama y cérvicouterino, de manera gratuita, por lo menos una vez al año.
+En los lugares donde no existan clínicas del sector público, dicha autoridad de salud del Estado realizará convenios de colaboración con los Ayuntamientos, clínicas particulares o patrocinadoras del sector privado, para que se realice el servicio gratuito de exámenes para la detección de cáncer de mama y cérvicouterino.
