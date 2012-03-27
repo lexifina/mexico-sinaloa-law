@@ -1,4 +1,4 @@
-CONSTITUCION POLITICA DEL ESTADO DE SINALOA
+CONSTITUCIÓN POLÍTICA DEL ESTADO DE SINALOA
 Constitución publicada en Edición Oficial de la Imprenta del Estado de Sinaloa, el 22 de junio de 1922.
 JOSÉ AGUILAR, Gobernador Constitucional Interino del Estado Libre y Soberano de Sinaloa, a los habitantes del mismo, hago saber:
 Que por la Secretaría del H. Congreso del Estado, se me ha comunicado el siguiente decreto:

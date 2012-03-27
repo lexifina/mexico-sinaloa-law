@@ -1,5 +1,5 @@
 P.O. 28 DE DICIEMBRE DE 1988.
-DECRETO No. 640 POR EL QUE SE REFORMAN LOS ARTICULOS 37, 43, FRACCION XXII Y 65, FRACCION VI DE LA CONSTITUCION POLITICA DEL ESTADO DE SINALOA.
+DECRETO No. 640 POR EL QUE SE REFORMAN LOS ARTÍCULOS 37, 43, FRACCIÓN XXII Y 65, FRACCIÓN VI DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE SINALOA.
 (F. DE E., P.O. 30 DE DICIEMBRE DE 1988)
 ARTICULO PRIMERO.- La cuenta pública del Estado, de los meses de noviembre y diciembre de 1988, se revisará y aprobará en su caso, durante el segundo período ordinario de sesiones del Congreso, debiéndose presentar a más tardar quince días antes de su apertura.
 (F. DE E., P.O. 30 DE DICIEMBRE DE 1988)

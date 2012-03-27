@@ -1,0 +1,5 @@
+P.O. 26 DE MARZO DE 2012.
+ARTÍCULO PRIMERO.- El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+ARTÍCULO SEGUNDO.- Para efecto de posibilitar la nueva fecha de instalación del Congreso del Estado, prevista en el artículo 36 de la Constitución Política, los diputados a la LXI Legislatura serán elegidos para un período de dos años y diez meses, por lo que por única ocasión iniciarán sus funciones el primero de diciembre de 2013 y las concluirán el 30 de septiembre de 2016.
+ARTÍCULO TERCERO.- También por única ocasión, durante el primer año de ejercicio constitucional de la LXI Legislatura, el primer período ordinario de sesiones iniciará el primero de diciembre de 2013 y terminará el treinta y uno de enero de 2014; y el segundo período ordinario empezará el primero de abril y concluirá el treinta y uno de julio de 2014.
+El primer período ordinario de sesiones del segundo año de ejercicio iniciará el primero de octubre de 2014 y a partir de esa fecha se ajustarán los períodos de sesiones al nuevo texto del artículo 36 de la Constitución Política del Estado, reformado con este decreto.
