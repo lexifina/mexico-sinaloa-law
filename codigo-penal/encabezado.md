@@ -1,4 +1,4 @@
-CODIGO PENAL PARA EL ESTADO DE SINALOA
+CÓDIGO PENAL PARA EL ESTADO DE SINALOA
 Código publicado en la Sección Primera del Periódico Oficial del Estado de Sinaloa, el miércoles 28 de octubre de 1992.
 EL CIUDADANO LICENCIADO FRANCISCO LABASTIDA OCHOA, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE SINALOA, A SUS HABITANTES HACE SABER:
 Que por el H. Congreso del mismo, se le ha comunicado lo siguiente:

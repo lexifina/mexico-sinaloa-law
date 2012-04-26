@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 25 DE ABRIL DE 2012)
+Artículo 59 Bis. En los procedimientos en que intervengan personas quienes no puedan hablar, oír, o no hablen el idioma español, formularán sus preguntas o contestaciones por escrito o por medio de un intérprete, que se designará de entre aquellos autorizados como auxiliares de la administración de justicia o por los colegios, asociaciones, barras de profesionales o instituciones públicas o privadas; en la celebración de audiencias el tribunal deberá otorgar la asistencia necesaria en materia de estenografía proyectada.
+Los intérpretes, al iniciar su función, serán advertidos de la (sic) penas en que incurren los falsos declarantes y sobre su obligación de traducir o interpretar fielmente lo dicho.

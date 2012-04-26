@@ -1,10 +1,10 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (DEROGADO CUARTO PÁRRAFO, P.O. 4 DE AGOSTO DE 2008)
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (DEROGADO QUINTO PÁRRAFO, P.O. 4 DE AGOSTO DE 2008)
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VER ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (DEROGADO SEXTO PÁRRAFO, P.O. 4 DE AGOSTO DE 2008)
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VER ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 4 DE AGOSTO DE 2008)
 Artículo 34 Bis. Se tendrá por abandonado un proceso y operará de pleno derecho la caducidad de la instancia, cualquiera que sea el estado del juicio, desde el primer auto que se dicte hasta que el asunto se encuentre citado para oír sentencia, si transcurridos ciento ochenta días naturales contados a partir de la notificación de la última determinación judicial, no hubiere promoción de alguna de las partes que tienda al impulso de la secuela procesal, salvo los casos de fuerza mayor, o cuando se trate de la ejecución de una sentencia firme. Si el último día del plazo fuere inhábil, se entenderá prorrogado hasta el primer día hábil siguiente.
 Los efectos y formas de su declaración se sujetarán a las normas siguientes:
