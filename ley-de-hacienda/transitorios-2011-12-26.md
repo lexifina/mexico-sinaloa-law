@@ -1,3 +1,4 @@
 P.O. 26 DE DICIEMBRE DE 2011.
-ARTÍCULO PRIMERO. La vigencia del presente Decreto será del 1° de enero al 31 de diciembre del año 2012, previa publicación en el Periódico Oficial "El Estado de Sinaloa".
+(REFORMADO, P.O. 31 DE DICIEMBRE DE 2012)
+ARTÍCULO PRIMERO. La vigencia del presente Decreto será a partir del 1° de enero al 31 de diciembre del año 2013, previa publicación en el Periódico Oficial "El Estado de Sinaloa".
 ARTICULO SEGUNDO. Las obligaciones derivadas de la Ley del Impuesto Sobre Tenencia o Uso de Vehículos Federal abrogada a partir del primero de enero del 2012, así como las derivadas del Impuesto sobre Tenencia o Uso de Vehículos previstas en la Ley de Hacienda del Estado de Sinaloa, contenidas en el Decreto número 40, publicado en el Periódico Oficial "El Estado de Sinaloa" el 27 de diciembre de 2010, al cual sustituye este Decreto, que hubieran nacido durante su vigencia por la realización de las situaciones jurídicas previstas en dichos ordenamientos, deberán ser cumplidas en las formas y plazos establecidos en los mismos y en las demás disposiciones aplicables.
