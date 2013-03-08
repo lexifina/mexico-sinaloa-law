@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 2 DE FEBRERO DE 2001)
-Artículo 410 Bis.- La adopción plena, es el vinculo jurídico y familiar que existe entre el adoptante y el adoptado semejante al hijo consanguíneo, para todos los efectos legales, incluyendo los impedimentos de matrimonio. El adoptado tiene en la familia del o los adoptantes los mismos derechos, deberes y obligaciones del hijo consanguíneo y debe llevar los apellidos del adoptante o adoptantes.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+Artículo 410 Bis.- (DEROGADO POR EL ARTÍCULO TRANSITORIO SEGUNDO DEL CÓDIGO FAMILIAR DEL ESTADO DE SINALOA, P.O. 6 DE FEBRERO DE 2013)

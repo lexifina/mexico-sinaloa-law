@@ -1,2 +1,2 @@
-(REFORMADO, P.O. 1 DE AGOSTO DE 2003)
-Artículo 410 Bis-2.- Para que la adopción plena pueda tener efectos, además de las personas a que se refiere el artículo 398 de este Código, deberá otorgar su consentimiento el padre o madre del menor que se pretenda adoptar, salvo que exista al respecto declaración judicial de abandono.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+Artículo 410 Bis-2.- (DEROGADO POR EL ARTÍCULO TRANSITORIO SEGUNDO DEL CÓDIGO FAMILIAR DEL ESTADO DE SINALOA, P.O. 6 DE FEBRERO DE 2013)

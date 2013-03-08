@@ -1,1 +1,2 @@
-Artículo 138 (sic).- La nulidad por falta de consentimiento de los ascendientes solo podrá alegarse por aquel o aquellos a quienes tocaba prestar dicho consentimiento, y dentro de treinta días contados desde que tengan conocimiento del matrimonio.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+Artículo 138 (sic).- (DEROGADO POR EL ARTÍCULO TRANSITORIO SEGUNDO DEL CÓDIGO FAMILIAR DEL ESTADO DE SINALOA, P.O. 6 DE FEBRERO DE 2013)

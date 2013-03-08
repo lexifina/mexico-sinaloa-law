@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 28 DE NOVIEMBRE DE 2008)
-Artículo 396 Ter.- La custodia familiar preadoptiva cesa por resolución judicial, por, haber concluido el plazo señalado por el Juez o, por haberse consumado la adopción.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+Artículo 396 Ter.- (DEROGADO POR EL ARTÍCULO TRANSITORIO SEGUNDO DEL CÓDIGO FAMILIAR DEL ESTADO DE SINALOA, P.O. 6 DE FEBRERO DE 2013)

@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 21 DE ENERO DE 2009)
-Artículo 291 Ter.- El concubinato genera entre los concubinos derechos alimentarios y sucesorios, con independencia de los demás reconocidos en este Código o en otras leyes.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA EL CÓDIGO.
+Artículo 291 Ter.- (DEROGADO POR EL ARTÍCULO TRANSITORIO SEGUNDO DEL CÓDIGO FAMILIAR DEL ESTADO DE SINALOA, P.O. 6 DE FEBRERO DE 2013)
