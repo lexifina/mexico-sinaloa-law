@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 19 DE ABRIL DE 2013)
+Artículo 49 Bis. En relación con las recomendaciones de desempeño que la Auditoría Superior del Estado emita a las entidades fiscalizadas, dentro de un plazo de treinta días hábiles contados a partir del día hábil siguiente al que surta efectos la notificación correspondiente, deberán rendir un informe en el que precisen las mejoras efectuadas, las acciones a realizar o, en su caso, justificar su improcedencia o las razones por las cuales no resulta factible su implementación.

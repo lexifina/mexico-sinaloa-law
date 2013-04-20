@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 19 DE ABRIL DE 2013)
+Artículo 34 Bis B. La información presupuestaria y programática que forme parte de la cuenta pública deberá relacionarse en lo conducente, con los objetivos y prioridades de la planeación del desarrollo. Asimismo, deberá incluir los resultados de la evaluación del desempeño de los programas Federales, Estatales y Municipales según corresponda, así como los vinculados al ejercicio de los recursos federales que les hayan sido transferidos.
+Para el cumplimiento de lo que establece el párrafo anterior, deberán utilizar indicadores que permitan determinar el cumplimiento de las metas y objetivos de cada uno de los programas, así como vincular los mismos con la planeación del desarrollo.

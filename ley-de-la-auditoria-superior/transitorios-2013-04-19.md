@@ -1,0 +1,4 @@
+P.O. 19 DE ABRIL DE 2013.
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+ARTÍCULO SEGUNDO. A partir de la entrada en vigor del presente Decreto, se derogan todas aquellas disposiciones legales que se opongan o contravengan al mismo.
+ARTÍCULO TERCERO. Los procedimientos que se hayan iniciado por la Auditoría Superior del Estado a los entes fiscalizables conforme a las disposiciones que rige (sic) su actuación y de la Ley de Responsabilidades Administrativas de los Servidores Públicos del Estado de Sinaloa, antes de la entrada en vigor del presente decreto de reforma, y que se encuentren en trámite o pendientes de resolución, deberán sustanciarse y resolverse conforme a las disposiciones vigentes en el momento en el que se iniciaron tales procedimientos.

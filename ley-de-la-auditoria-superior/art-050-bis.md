@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 19 DE ABRIL DE 2013)
+Artículo 50 Bis. Las observaciones que, en su caso emita la Auditoría Superior del Estado, al realizar la fiscalización de la cuenta pública de los Poderes del Estado, Municipios, así como de los informes sobre la aplicación de los recursos públicos recibidos durante el ejercicio fiscal anterior de los Entes Públicos Estatales y Municipales, podrán derivar en:
+I. Acciones promovidas: Las solicitudes de aclaración, recuperación, pliegos de observaciones, promociones de intervención de la instancia de control competente, promociones de responsabilidad administrativa sancionatoria, fincamiento de responsabilidad resarcitoria, denuncias de hechos y denuncias de juicio político.
+Las acciones promovidas que deriven de las auditorías de desempeño, deberán incluirse anualmente en el Informe de Resultados de la Revisión y Fiscalización Superior de la Cuenta Pública, relativa al segundo semestre del ejercicio fiscal correspondiente;
+II. Recomendaciones, incluyendo las referentes al desempeño.
