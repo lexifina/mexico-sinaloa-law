@@ -3,7 +3,7 @@ ARTICULO PRIMERO.- La presente Ley entrará en vigor en los Municipios a que se 
 (REFORMADO, P.O. 20 DE FEBRERO DE 1991)
 ARTICULO SEGUNDO.- Se deroga en los Municipios de Ahome, El Fuerte, Choix, Guasave, Sinaloa, Mocorito, Angostura, Salvador Alvarado, Badiraguato, Culiacán, Navolato, Cosalá, Elota, San Ignacio, Mazatlán, Concordia, Rosario y Escuinapa, la Ley de Hacienda Municipal contenida en el Decreto número 87, publicada en el Periódico Oficial "El Estado de Sinaloa" número 157 de fecha 31 de Diciembre de 1966.
 ARTICULO TERCERO.- (DEROGADO, P.O. 31 DE ENERO DE 1992)
-(REFORMADO PRIMER PARRAFO, P.O. 31 DE DICIEMBRE DE 1992)
+(REFORMADO PRIMER PÁRRAFO, P.O. 31 DE DICIEMBRE DE 1992)
 ARTICULO CUARTO.- Durante 1993 en aquellas poblaciones en que las revaluaciones catastrales hayan entrado o entren en vigor a partir del 1° de enero de 1990 hasta el 31 de diciembre de 1993, el Impuesto Predial urbano se determinará conforme a la tarifa contenida en la fracción I del Artículo 52 de esta Ley, tomando como base para sus pagos:
 (REFORMADO, P.O. 20 DE FEBRERO DE 1991)
 I.- El 65% del monto que resulte para los inmuebles cuyo valor catastral establecen los incisos a), b), c), d), e), f) y g).
@@ -24,7 +24,7 @@ VIGOR EN:
 1991El 30% del impuesto a pagar
 1990El 20% del impuesto a pagar
 1989El 10% del impuesto a pagar
-(DEROGADO CUARTO PARRAFO, P.O. 31 DE ENERO DE 1992)
+(DEROGADO CUARTO PÁRRAFO, P.O. 31 DE ENERO DE 1992)
 (REFORMADO, P.O. 20 DE FEBRERO DE 1991)
 La casa habitación propiedad de pensionados o jubilados o de sus cónyuges con valor hasta de 10,000 veces el salario mínimo general diario, pagarán un importe como cuota fija de 3 veces el salario mínimo general diario al año, previa comprobación a satisfacción de la Tesorería Municipal en la que corresponda hacer el pago de su calidad de jubilado o pensionado, así como de que ellos habitan la propiedad objeto de este Artículo. Cuando la casa habitación tenga un valor superior a 10,000 veces el salario mínimo general diario, el impuesto se causará mediante la aplicación de la siguiente:
 TARIFA:
@@ -81,4 +81,4 @@ EL SECRETARIO GENERAL DE GOBIERNO
 LIC. JUAN BURGOS PINTO
 EL SECRETARIO DE HACIENDA PUBLICA Y TESORERIA
 LIC. RENATO MORESCHI OVIEDO.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.

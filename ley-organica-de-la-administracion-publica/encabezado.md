@@ -1,4 +1,4 @@
-LEY ORGANICA DE LA ADMINISTRACION PUBLICA DEL ESTADO DE SINALOA
+LEY ORGÁNICA DE LA ADMINISTRACIÓN PÚBLICA DEL ESTADO DE SINALOA
 Ley publicada en el Periódico Oficial del Estado de Sinaloa, el lunes 5 de enero de 1981.
 GOBIERNO DEL ESTADO LIBRE Y SOBERANO DE SINALOA.
 EL CIUDADANO ANTONIO TOLEDO CORRO, Gobernador Constitucional del Estado Libre y Soberano de Sinaloa, a sus habitantes hace saber:

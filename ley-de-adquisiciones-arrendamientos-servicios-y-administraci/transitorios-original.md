@@ -29,3 +29,4 @@ El Secretario de Administración y Finanzas
 Lic. Quirino Ordaz Coppel
 El Secretario de la Contraloría y Desarrollo Administrativo
 Lic. Luis Antonio Cárdenas Fonseca
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
