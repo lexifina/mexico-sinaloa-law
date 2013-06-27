@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE JUNIO DE 2013)
+Artículo 24 Bis A. El Gobierno del Estado y los Ayuntamientos prevendrán este tipo de violencia de manera transversal con la implementación de políticas públicas para prevenir, identificar, atender y resolver esta modalidad de violencia, realizando acciones y programas de prevención en adolescentes y jóvenes, a través de mecanismos de información y campañas para erradicar los roles discriminatorios, estereotipos sexistas, las prácticas de resolución violenta de conflictos, la misoginia y la legitimación social al uso de la violencia.
