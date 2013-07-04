@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Dentro del término de noventa días naturales contados a partir de la entrada en vigor de esta Ley deberán quedar constituidos el Consejo Estatal contra la Discriminación, así como los Consejos Municipales.
