@@ -1,0 +1,11 @@
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 3 DE JULIO DE 2013)
+CAPITULO VI BIS
+DELITOS CONTRA LAS ACTIVIDADES DE LAS INSTITUCIONES DE SEGURIDAD PUBLICA Y DEL ESTADO
+(ADICIONADO, P.O. 3 DE JULIO DE 2013)
+ARTICULO 293 Bis.- Se aplicará pena de cuatro años seis meses a quince años de prisión y de mil a dos mil días multa, a quien:
+I. Aceche, vigile, espíe o proporcione información, sobre las actividades oficiales o personales que realicen o pretendan realizar los servidores públicos de las Instituciones de Seguridad Pública con la finalidad de entorpecer o evitar el cumplimiento de sus funciones u ocasionarles un daño a dichas instituciones o servidores públicos;
+II. Ingrese, altere o acceda a información de las Instituciones de Seguridad Pública con los fines señalados en el párrafo anterior;
+III. Aceche o vigile en cualquier lugar o realice cualquier acto, tendientes a evitar la captura de algún delincuente o miembro de una asociación delictuosa u organización criminal; o
+IV. Elabore, imprima, fabrique, proporcione, posea, desplace, traslade, aloje, aplique o instale expresiones impresas en lugares públicos o mensajes producidos por cualquier otro medio, que contengan advertencias o amenazas, en contra de servidores públicos, Instituciones Públicas y del Estado, con la finalidad de entorpecer o evitar el cumplimiento de sus funciones u ocasionarles un daño a dichas instituciones o servidores públicos.
+La pena prevista en este artículo se aumentará desde un tercio hasta una mitad, al que realice las conductas descritas en este precepto utilizando para ello cualquier vehículo de servicio público de transporte de pasajeros u otro que preste un servicio similar o que por sus características exteriores sea similar a la apariencia de los vehículos destinados al servicio de transporte público de pasajeros.
+La pena señalada en este numeral se aumentará desde un tercio hasta un tanto más y se impondrá además, la destitución del cargo o comisión e inhabilitación de tres a diez años para ocupar otro, cuando el delito sea cometido por servidores públicos o por ex servidores públicos de las fuerzas armadas, instituciones de seguridad pública o de procuración o administración de justicia.
