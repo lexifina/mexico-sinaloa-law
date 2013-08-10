@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 9 DE AGOSTO DE 2013)
+ARTICULO 172 Bis H.- Si la víctima fuera liberada espontáneamente dentro de los tres días siguientes a su privación, la pena será de ocho meses a cuatro años de prisión, sin perjuicio de aplicar la que corresponda a actos ejecutados u omitidos que constituyan por sí mismos delitos.
+Si la liberación ocurriera dentro de los diez días siguientes a su privación, la pena aplicable será de dos a ocho años de prisión, sin perjuicio de aplicar la que corresponda a actos ejecutados u omitidos que constituyan por sí mismos delitos.
+Las penas previstas en este artículo podrán ser disminuidas hasta en una tercera parte en beneficio de aquel que hubiere participado en la comisión del delito, cuando suministre información que permita esclarecer los hechos, identificar a los autores o recuperar los restos de la víctima; y hasta en una mitad cuando contribuya a lograr la reaparición con vida de la víctima.

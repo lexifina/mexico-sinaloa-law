@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 9 DE AGOSTO DE 2013)
+ARTICULO 172 Bis G.- La oposición o negativa a la autoridad competente para tener libre e inmediato acceso al lugar donde haya motivos para creer que se pueda encontrar a una persona desaparecida, por parte del servidor público responsable del mismo, será sancionada con la destitución de su cargo, comisión o empleo, sin perjuicios de la aplicación de las penas de los demás delitos en que pudiera incurrir con motivo de su conducta.
