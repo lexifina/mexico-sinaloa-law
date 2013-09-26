@@ -1,0 +1,1 @@
+ARTÍCULO TERCERO. Se abroga el Decreto número 151 de la Ley Orgánica de la Defensoría de Oficio del Estado de Sinaloa, publicada en el Periódico Oficial "El Estado de Sinaloa" número 99, segunda sección de fecha 18 de agosto de 1993, conforme a lo previsto en el artículo segundo transitorio del presente Decreto.

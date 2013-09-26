@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO. A partir de la entrada en vigor de esta Ley, el personal en funciones del Cuerpo de Defensores de Oficio del Estado de Sinaloa, pasará a formar parte del Instituto de Defensoría Pública del Estado de Sinaloa, respetándose sus derechos laborales adquiridos.

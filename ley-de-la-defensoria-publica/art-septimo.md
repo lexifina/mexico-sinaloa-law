@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO. Todos los recursos materiales asignados al Cuerpo de Defensores de Oficio del Estado de Sinaloa, a partir de la entrada en vigor de esta Ley, pasarán a formar parte del patrimonio del Instituto de Defensoría Pública del Estado de Sinaloa.
