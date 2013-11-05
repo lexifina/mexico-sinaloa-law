@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. En un plazo de noventa días contados a partir de la publicación del presente Decreto, el Ejecutivo del Estado y los Ayuntamientos, deberán emitir las disposiciones reglamentarias correspondientes y realizar las acciones necesarias para su debida observancia e instrumentación.
