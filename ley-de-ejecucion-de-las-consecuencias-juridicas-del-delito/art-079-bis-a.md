@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE NOVIEMBRE DE 2013)
+Artículo 79 Bis A.- En cada uno de los Centros Penitenciarios, debe instalarse y funcionar un Consejo Técnico Interdisciplinario que será el órgano colegiado encargado de determinar las políticas, acciones y estrategias para la mejor funcionalidad de dichos Centros, además de determinar los tratamientos que deben aplicarse a los sentenciados para fomentar la reinserción social de conformidad con la presente Ley y demás ordenamientos jurídicos aplicables en la materia.

@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 27 DE NOVIEMBRE DE 2013)
+Artículo 111 Bis A.- El objeto de los programas de acondicionamiento físico será:
+I. El impulso de la actividad deportiva como causa generadora de hábitos favorecedores de la reinserción social, fomento de la solidaridad y cuidado preventivo de la salud;
+II. La práctica deportiva como elemento fundamental del sistema educativo, sanitario y de calidad de vida;
+III. El desarrollo de la interacción grupal, y revalorización de juegos de la tradición popular como medio de la reinserción social; y,
+IV. El esparcimiento a través de actividades deportivas.

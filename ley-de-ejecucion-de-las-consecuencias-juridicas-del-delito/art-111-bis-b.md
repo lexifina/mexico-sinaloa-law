@@ -1,0 +1,2 @@
+(REFORMADO, P.O. 27 DE NOVIEMBRE DE 2013)
+Artículo 111 Bis B.- Con la finalidad de cumplir dicho objetivo el Sistema Penitenciario del Estado, sus establecimientos y autoridades contarán con la participación, apoyo y colaboración del Instituto Sinaloense del Deporte y la Cultura Física y adicionalmente podrán establecer vínculos de participación con instituciones públicas y privadas en materia de deporte y recreación.

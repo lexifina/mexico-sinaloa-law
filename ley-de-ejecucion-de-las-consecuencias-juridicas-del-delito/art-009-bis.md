@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE NOVIEMBRE DE 2013)
+Artículo 9 Bis.- La función de reinserción social se realizará en los diversos ámbitos de competencia, de los responsables de la prisión preventiva y ejecución de penas, de las autoridades competentes en materia de justicia para adolescentes, así como por las demás autoridades que en razón de sus atribuciones deban contribuir directa o indirectamente al objeto de esta Ley por conducto de las Instituciones penitenciarias.
