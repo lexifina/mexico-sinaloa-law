@@ -1,0 +1,11 @@
+P.O. 27 DE NOVIEMBRE DE 2013.
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+SEGUNDO. Por lo que concierne a lo relativo al proceso penal acusatorio, el presente Decreto entrará en vigor de manera gradual y sucesiva, en las regiones que comprenden los distritos judiciales del Estado de Sinaloa, según se precisa a continuación:
+I. Sus disposiciones se aplicarán a partir del día primero de junio del año dos mil catorce, en la circunscripción que comprenden los distritos judiciales de Angostura, Mocorito, Salvador Alvarado, Guasave y Sinaloa.
+II. Sus disposiciones se aplicarán a partir del día primero de diciembre del año dos mil catorce, en la circunscripción que comprenden los distritos judiciales de Ahome, El Fuerte y Choix.
+III. Sus disposiciones se aplicarán a partir del día primero de junio del año dos mil quince, en la circunscripción que comprenden los distritos judiciales de Elota, Cosalá, San Ignacio, Mazatlán, Concordia, Rosario y Escuinapa.
+IV. Sus disposiciones se aplicarán a partir del día primero de junio del año dos mil dieciséis, en la circunscripción que comprenden los distritos judiciales de Badiraguato, Culiacán y Navolato.
+TERCERO. El Ejecutivo del Estado deberá considerar en la Ley de Ingresos y Presupuesto de Egresos del Estado de Sinaloa para el ejercicio fiscal que corresponda, los recursos necesarios para el cumplimiento del presente Decreto, en apego a los artículos primero y segundo transitorios del Código de Procedimientos Penales publicado en el Periódico Oficial "El Estado de Sinaloa" de fecha 25 de enero de 2013.
+CUARTO. Dentro del plazo de entrada en vigor del presente Decreto, el Pleno del Supremo Tribunal de Justicia del Estado deberá expedir la normatividad necesaria para reglamentar los procedimientos y organización administrativa de los Juzgados de Primera Instancia de
+Control y Juicio Oral Penal.
+QUINTO. Dentro del plazo de entrada en vigor del presente Decreto, el Pleno del Supremo Tribunal de Justicia del Estado deberá disponer los procesos para la selección del personal de los Juzgados de Primera Instancia de Control y Juicio Oral Penal, así como las acciones de capacitación necesarias para dicho personal y demás servidores judiciales con intervención en el proceso penal acusatorio y su implementación.
