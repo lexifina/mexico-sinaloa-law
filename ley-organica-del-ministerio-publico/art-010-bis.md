@@ -1,7 +1,7 @@
-N. DE E. EN RELACION CON LA MATERIA DE NARCOMENUDEO PUBLICADO EN EL DECRETO NUMERO 322 DEL P.O. 29 DE AGOSTO DE 2011, CONSULTESE EL TRANSITORIO SEGUNDO.
+N. DE E. EN RELACIÓN CON LA MATERIA DE NARCOMENUDEO PUBLICADO EN EL DECRETO NÚMERO 322 DEL P.O. 29 DE AGOSTO DE 2011, CONSÚLTESE EL TRANSITORIO SEGUNDO.
 (REFORMADO PRIMER PARRAFO, P.O. 29 DE AGOSTO DE 2011)
 Artículo 10 Bis. Investigar y perseguir las conductas tipificadas como delitos por las leyes penales estatales y los autorizados por las leyes de conformidad con el artículo 73 fracción XXI, de la Constitución Política de los Estados Unidos Mexicanos, atribuidas a adolescentes, proveyendo al respeto de sus derechos fundamentales y ejecutando las acciones conducentes a la solución del conflicto y la obtención de justicia ante la autoridad judicial, comprende:
-N. DE E. EN RELACION CON LA MATERIA DE NARCOMENUDEO PUBLICADO EN EL DECRETO NUMERO 322 DEL P.O. 29 DE AGOSTO DE 2011, CONSULTESE EL TRANSITORIO SEGUNDO.
+N. DE E. EN RELACIÓN CON LA MATERIA DE NARCOMENUDEO PUBLICADO EN EL DECRETO NÚMERO 322 DEL P.O. 29 DE AGOSTO DE 2011, CONSÚLTESE EL TRANSITORIO SEGUNDO.
 (REFORMADA, P.O. 29 DE AGOSTO DE 2011)
 I. Realizar en cada asunto de su conocimiento, con motivo de la investigación y persecución de conductas tipificadas como delitos por las leyes penales o en otras leyes que deban aplicar los tribunales del Estado, atribuidas a adolescentes, el análisis, el diagnóstico y la prognosis del caso, el plan de trabajo y la bitácora de las acciones de investigación;
 (ADICIONADA, P.O. 11 DE SEPTIEMBRE DE 2006)
