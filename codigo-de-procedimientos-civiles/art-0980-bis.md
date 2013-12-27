@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 02 DE FEBRERO DE 2001)
-Artículo 980 Bis. Si el adoptado fuere menor de edad, para resolver sobre la revocación se oirá previamente a las personas que prestaron su consentimiento conforme al Código Civil, cuando fuere conocido su domicilio o, en su caso, se oirá al Ministerio Público.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 980 Bis. (DEROGADO POR ARTÍCULO SEXTO TRANSITORIO DEL CÓDIGO DE PROCEDIMIENTOS FAMILIARES DEL ESTADO DE SINALOA, P.O. 27 DE NOVIEMBRE DE 2013)

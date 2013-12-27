@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 02 DE FEBRERO DE 2001)
-Artículo 980 Bis-2. Cuando el adoptante o adoptantes soliciten la conversión de la adopción simple a plena y se reúnan los requisitos previstos en el artículo 405 del Código Civil, el juez los citará a una audiencia verbal dentro de los ocho días siguientes con la intervención del Ministerio Público, luego de la cual se resolverá lo conducente, en el término de ocho días.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 980 Bis-2. (DEROGADO POR ARTÍCULO SEXTO TRANSITORIO DEL CÓDIGO DE PROCEDIMIENTOS FAMILIARES DEL ESTADO DE SINALOA, P.O. 27 DE NOVIEMBRE DE 2013)

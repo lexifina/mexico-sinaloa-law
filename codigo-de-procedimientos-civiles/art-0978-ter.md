@@ -1,3 +1,2 @@
-(ADICIONADO, P.O. 28 DE NOVIEMBRE DE 2008)
-Artículo 978 Ter. Una vez aprobada la custodia familiar preadoptiva, el Juez le enviará al Ministerio Público Especializado o del lugar las copias del expediente, quien vigilará la custodia preadoptiva y le entregará al menos un informe semestral y, en caso de anomalías podrá promover cualquier medida de protección.
-La vigilancia del Ministerio Público, no eximirá a la casa de asistencia pública o privada la de seguir velando por los intereses de la niña, niño o adolescente sujeto a la custodia preadoptiva y de su obligación de poner en conocimiento del Ministerio Público cualquier circunstancia que afecte sus derechos para que proceda en favor del infante.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+Artículo 978 Ter. (DEROGADO POR ARTÍCULO SEXTO TRANSITORIO DEL CÓDIGO DE PROCEDIMIENTOS FAMILIARES DEL ESTADO DE SINALOA, P.O. 27 DE NOVIEMBRE DE 2013)
