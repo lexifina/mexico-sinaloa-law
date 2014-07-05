@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 26 DE OCTUBRE DE 1987)
-ARTICULO 10 Bis.- Serán facultades del Consejo Directivo:
+ARTICULO 10 BIS.- Serán facultades del Consejo Directivo:
 I.- Tomar las resoluciones, dictar los acuerdos y realizar los actos necesarios para el cumplimiento de las funciones que correspondan a la Comisión Estatal;
 II.- Formular y expedir el Reglamento Interior del Organismo;
 III.- Designar y remover libremente al Vocal Ejecutivo;
