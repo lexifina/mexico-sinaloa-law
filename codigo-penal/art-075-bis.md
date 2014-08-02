@@ -1,6 +1,8 @@
 (ADICIONADO, P.O. 3 DE OCTUBRE DE 2007)
 ARTICULO 75 BIS.- Si se trata de un delincuente primario, de escaso desarrollo intelectual, de indigente situación económica y de mínima peligrosidad, podrá el órgano jurisdiccional, en el momento de dictar sentencia, reducir hasta la mitad de la pena que le correspondería conforme a este código, siempre que no se trate de un delito grave.
-Si no se trata de un delito grave y el inculpado al rendir su declaración preparatoria confiesa espontánea, lisa y llanamente los hechos que se le imputan, o en el mismo acto ratifica la declaración rendida en indagatoria, el juzgador podrá reducir hasta en un tercio la pena que le correspondería conforme a este código.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(REFORMADO, P.O. 30 DE JULIO DE 2014)
+Si no se trata de un delito grave y el imputado confiesa espontánea, lisa y llanamente los hechos que se le imputan, el juzgador podrá reducir hasta en un tercio la pena que le correspondería conforme a este Código.
 Para los efectos de este artículo, el juez sólo podrá aplicar una sola de las reducciones anteriormente señaladas.
 La sentencia que reduzca la pena en los términos del primero y segundo párrafo de este artículo, deberá ser confirmada por el tribunal de alzada correspondiente, para que surta efectos. Entretanto, la pena se entenderá impuesta sin la reducción autorizada por este artículo.
 Cuando se trate de punibilidad alternativa, el juzgador podrá imponer, motivando su resolución, la sanción privativa de la libertad cuando ello sea ineludible a los fines de justicia, prevención general y prevención especial.
