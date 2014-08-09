@@ -19,3 +19,4 @@ El Secretario General de Gobierno
 Lic. Rafael Oceguera Ramos.
 El Secretario de Salud
 Dr. Héctor Ponce Ramos
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
