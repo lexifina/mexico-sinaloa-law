@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA MATERIA DE NARCOMENUDEO PUBLICADO EN EL DECRETO NUMERO 322 DEL P.O. 29 DE AGOSTO DE 2011, CONSULTESE EL TRANSITORIO SEGUNDO.
+N. DE E. EN RELACIÓN CON LA MATERIA DE NARCOMENUDEO PUBLICADO EN EL DECRETO NÚMERO 322 DEL P.O. 29 DE AGOSTO DE 2011, CONSÚLTESE EL TRANSITORIO SEGUNDO.
 (ADICIONADO, P.O. 29 DE AGOSTO DE 2011)
 Artículo 4 Bis. La Secretaría de Salud, en el marco del Sistema Nacional de Salud, y para ejecutar los programas nacionales de prevención y tratamiento de la farmacodependencia de conformidad con los convenios respectivos, realizará, entre otras, las siguientes acciones:
 I. Organizar, promover, operar, supervisar y evaluar la prestación de servicios y campañas permanentes de información y orientación al público para la prevención de daños a la salud provocados por el consumo de estupefacientes y psicotrópicos; así como la atención médica o tratamiento de las adicciones mediante la aplicación del Programa Nacional para la Prevención y Tratamiento de la Farmacodependencia, en términos del artículo 192 de la Ley General de Salud;
