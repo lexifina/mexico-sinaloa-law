@@ -1,0 +1,4 @@
+P.O. 22 DE OCTUBRE DE 2014.
+DECRETO NO. 147 POR EL QUE SE REFORMA EL ARTÍCULO 12, FRACCIÓN III Y SE DEROGA LA FRACCIÓN III BIS DEL ARTÍCULO 104, DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE SINALOA.
+PRIMERO. El presente Decreto entrará en vigor en los términos que establezca la Declaratoria que para tales efectos emita el H. Congreso del Estado de Sinaloa, de conformidad con lo dispuesto en el artículo segundo transitorio, tercer párrafo, del Decreto por el que se reforman y adicionan diversas disposiciones de la Constitución Política de los Estados Unidos Mexicanos, publicado en el Diario Oficial de la Federación de fecha 18 de junio de 2008, así como en el artículo segundo transitorio, segundo párrafo, del Decreto por el que se expide el Código Nacional de Procedimientos Penales, publicado en el Diario Oficial de la Federación de fecha 5 de marzo de 2014.
+SEGUNDO. Publíquese en el Periódico Oficial "El Estado de Sinaloa".
