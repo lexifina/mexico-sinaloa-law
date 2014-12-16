@@ -7,7 +7,7 @@ II.- Enajene o trafique de cualquier manera con vehículo o vehículos robados;
 (ADICIONADA, P.O. 21 DE OCTUBRE DE 1998)
 III.- Detente, posea o custodie sin derecho, la documentación que acrediten la propiedad o identificación de un vehículo robado o bien, la altere o modifique de cualquier manera;
 (ADICIONADA, P.O. 21 DE OCTUBRE DE 1998)
-IV.- Traslade el o los vehículos robados a otra entidad federativa; o (sic)
+IV.- Traslade el o los vehículos robados a otra entidad federativa; o
 (ADICIONADA, P.O. 21 DE OCTUBRE DE 1998)
 V.- Utilice el o los vehículos robados en la comisión de otro u otros delitos;
 (ADICIONADA, P.O. 5 DE OCTUBRE DE 2007)
