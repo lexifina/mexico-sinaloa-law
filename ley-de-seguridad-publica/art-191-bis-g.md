@@ -6,7 +6,8 @@ III. Realizar los informes relativos al cumplimiento de las condiciones impuesta
 IV. Informar al Juez y a la Autoridad Penitenciaria la conducta del sentenciado que goce de un beneficio de libertad anticipada o de un sustitutivo de la pena de prisión;
 V. Proponer estrategias de cumplimiento de medidas y condiciones para los sentenciados ante el Juez y la Autoridad Penitenciaria; y
 VI. Las que determinen las Unidades de seguimiento a las medidas cautelares y obligaciones procesales, el Juez, la Autoridad Penitenciaria así como los reglamentos y manuales de la materia.
+(REFORMADA SU DENOMINACIÓN, P.O. 30 DE OCTUBRE DE 2015)
 Capítulo VI
-Del Personal de la Policía Preventiva
+Del Personal de las Instituciones de Seguridad Pública
 Sección Primera
 Del Régimen Laboral
