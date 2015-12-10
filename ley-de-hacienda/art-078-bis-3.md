@@ -8,11 +8,15 @@ CONCEPTOVECES EL SALARIO
 MINIMO GENERAL
 DIARIO VIGENTE
 1.- Por reproducción de:
-a).- Por hoja impresa en sistemas
-de copiado en proceso fotomecánico
-o impresión en hoja de tira continua:0.05
-b).- Por hoja impresa en impresora
-láser o inyección de tinta:0.15
+(REFORMADO, P.O. 9 DE DICIEMBRE DE 2015)
+a).- Por hoja impresa después de las
+primeras veinte copias que serán gratuitas,
+en sistemas de copiado en proceso fotomecánico
+o impresión en hoja de tira continua:0.005
+(REFORMADO, P.O. 9 DE DICIEMBRE DE 2015)
+b).- Por hoja impresa, después de las
+primeras veinte copias que serán gratuitas,
+en impresora láser o inyección de tinta:0.015
 c).- Por copia heliográfica o fotográfica de planos:
 Tamaño oficio:0.25
 d).- Por copia heliográfica de planos:
@@ -30,6 +34,6 @@ En hoja hasta tamaño carta:0.65
 Por decímetro cuadrado o fracción
 excedente:0.10
 2.- Reproducción o captura de archivos en dispositivos magnéticos o discos compactos, por cada unidad de:
-a).- Microdisco magnético de
-9 centímetros:0.50
-b).- Disco compacto grabado:1.25
+a).- (DEROGADO, P.O. 9 DE DICIEMBRE DE 2015)
+(REFORMADO, P.O. 9 DE DICIEMBRE DE 2015)
+b).- Disco compacto grabado:0.125

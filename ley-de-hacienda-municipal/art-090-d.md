@@ -4,9 +4,17 @@ Tarifa
 ConceptoVeces el Salario Mínimo
 General Diario Vigente
 1. Por reproducción de:
-a).- Por hoja impresa en sistemas de copiado en proceso fotomecánico o impresión en hoja de tira continua0.05
-b).- Por hoja impresa en impresora
-láser o inyección de tinta:0.15
+(REFORMADO, P.O. 9 DE DICIEMBRE DE 2015)
+a).- Por hoja impresa, después
+de las primeras veinte copias que
+serán gratuitas, en sistemas de copiado
+en proceso fotomecánico o impresión en hoja
+de tira continua:0.005
+(REFORMADO, P.O. 9 DE DICIEMBRE DE 2015)
+b).- Por hoja impresa, después
+de las primeras veinte copias que
+serán gratuitas, en impresora
+láser o inyección de tinta:0.015
 c).- Por copia heliográfica o
 fotográfica de planos tamaño oficio:0.25
 d).- Por copia heliográfica de planos
@@ -24,6 +32,6 @@ En hoja hasta tamaño carta0.65
 Por decímetro cuadrado o
 fracción excedente0.10
 2.- Reproducción o captura de archivos en dispositivos magnéticos o discos compactos, por cada unidad de:
-a).- Microdisco magnético
-de 9 centímetros0.50
-b).- Disco compacto grabado1.25
+a).- (DEROGADO, P.O. 9 DE DICIEMBRE DE 2015)
+(REFORMADO, P.O. 9 DE DICIEMBRE DE 2015)
+b).- Disco compacto grabado0.125
