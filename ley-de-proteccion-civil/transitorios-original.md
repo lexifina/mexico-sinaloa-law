@@ -21,3 +21,4 @@ Gobernador Constitucional del Estado
 Lic. Mario López Valdez
 El Secretario General de Gobierno
 C. Gerardo O. Vargas Laderos
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
