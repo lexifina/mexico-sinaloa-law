@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 10 DE FEBRERO DE 2016)
+ARTICULO 6o BIS J. Para efectos de lo dispuesto en el artículo 51 de la Ley de Coordinación Fiscal se entenderá por:
+I. Obligaciones de pago de derechos y aprovechamientos por concepto de agua y descargas de aguas residuales: Los pagos que deban realizar los municipios, incluyendo sus organismos operadores de agua a la Comisión Nacional del Agua por el derecho de uso, aprovechamiento o explotación de aguas nacionales, por uso o aprovechamiento de bienes del dominio público de la Nación como cuerpos receptores de las descargas de agua residuales, de conformidad con la Ley Federal de Derechos.
+II. Incumplimiento: La falta de pago total o parcial de las obligaciones a que se refiere la fracción I del presente artículo que deban realizar los municipios.

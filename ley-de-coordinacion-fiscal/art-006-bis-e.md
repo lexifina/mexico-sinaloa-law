@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE FEBRERO DE 2016)
+ARTICULO 6o BIS E. Las responsabilidades administrativas, civiles y penales en que incurran las autoridades estatales o municipales por el manejo o aplicación indebida de los recursos de los fondos federales señalados en el presente Capítulo, para fines distintos a los previstos por la Ley de Coordinación Fiscal, serán sancionados en los términos de la legislación federal y estatal aplicable.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 10 DE FEBRERO DE 2016)
+ARTICULO 6o BIS H. Para acreditar el incumplimiento, la Comisión Nacional del Agua deberá enviar a la Secretaría de Administración y Finanzas por escrito la relación de adeudos de cada uno de los municipios, incluyendo sus organismos operadores de agua, por cada una de sus obligaciones de pago de derechos y aprovechamientos por concepto de agua y descargas de aguas residuales.
