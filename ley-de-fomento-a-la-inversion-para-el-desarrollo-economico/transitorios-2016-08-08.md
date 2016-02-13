@@ -1,4 +1,4 @@
-P.O. 8 DE AGOSTO DE 2014.
+P.O. 8 DE AGOSTO DE 2016.
 ARTÍCULO PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
 ARTÍCULO SEGUNDO. Dentro de los noventa días posteriores a la entrada en vigor del presente Decreto, deberá instalarse el Consejo y la Secretaría deberá constituir el Registro Estatal de las Micro, Pequeñas y Medianas Empresas.
 ARTÍCULO TERCERO. El Reglamento de la Ley para el Desarrollo de la Competitividad de las Micro, Pequeñas y Medianas Empresas del Estado de Sinaloa, deberá expedirse en un plazo no mayor a ciento ochenta días, contados a partir de la entrada en vigor del presente Decreto.
