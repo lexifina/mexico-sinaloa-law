@@ -19,3 +19,5 @@ VII. El Estado adoptará las medidas necesarias con el fin de que toda persona p
 (REFORMADA, P.O. 18 DE DICIEMBRE DE 2015)
 VIII. El Estado adoptará las medidas especiales de carácter temporal encaminadas a acelerar la igualdad entre mujeres y hombres, siempre y cuando no entrañen el mantenimiento indefinido de normas desiguales o separadas. Entre otras, aplicará la perspectiva de género en el diseño, ejecución, seguimiento y evaluación de las políticas públicas que se implementen.
 Dichas medidas cesarán cuando se hayan alcanzado los objetivos de igualdad en la oportunidad y en el trato entre mujeres y hombres.
+(ADICIONADA, P.O. 16 DE MARZO DE 2016)
+IX. Todo individuo tiene derecho a recibir educación. El Estado y los Municipios garantizarán que la educación preescolar, primaria, secundaria y media superior que impartan sea obligatoria y gratuita.
