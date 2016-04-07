@@ -1,4 +1,4 @@
-P.O. 6 DE ABRIL DEL 2016.
+P.O. 6 DE ABRIL DE 2016.
 [N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 437 QUE ADICIONA LA SECCIÓN II TER DEL CONSEJO ESTATAL DE EVALUACIÓN DE LA POLÍTICA DE DESARROLLO SOCIAL A LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE SINALOA".]
 PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
 SEGUNDO. El Congreso del Estado deberá expedir la ley que regirá al órgano autónomo denominado Consejo Estatal para la Evaluación de la Política de Desarrollo Social.
