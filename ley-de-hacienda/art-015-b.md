@@ -24,3 +24,5 @@ Septiembre0.33
 Octubre0.25
 Noviembre0.17
 Diciembre0.08
+(ADICIONADO, P.O. 4 DE MAYO DE 2016)
+Tratándose de vehículos usados, el impuesto deberá calcularse y enterarse en el momento en el cual se solicite el registro del vehículo en la entidad, aplicándose el factor correspondiente contenido en la tabla que antecede.
