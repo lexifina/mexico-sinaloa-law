@@ -1,0 +1,14 @@
+P.O. 4 DE MAYO DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 548 LEY DE TRANSPARENCIA Y ACCESO A LA INFORMACIÓN PÚBLICA DEL ESTADO DE SINALOA".]
+PRIMERO. La presente Ley entrará en vigor el día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+SEGUNDO. Se derogan los Capítulos Primero, Segundo, Tercero, Cuarto, Quinto, Séptimo, Octavo y Noveno, así como los artículos que los integran, de la Ley de Acceso a la Información Pública del Estado de Sinaloa publicada en el Periódico Oficial "El Estado de Sinaloa" No. 051 de 26 de abril de 2002.
+El Capítulo Sexto y los artículos que lo integran estarán vigentes hasta en tanto el Congreso de la Unión expida la Ley General en Materia de Protección de Datos Personales, y este Congreso del Estado realice la armonización correspondiente.
+TERCERO. La Comisión deberá expedir en un plazo de 90 días contados a partir de la entrada en vigor de la presente Ley, su Reglamento Interior, así como los lineamientos en materia de Obligaciones de Transparencia para aquellos supuestos distintos a los referidos en la Ley General.
+CUARTO. A la entrada en vigor del presente Decreto, los sujetos obligados deberán realizar las adecuaciones administrativas necesarias para su debido cumplimiento.
+QUINTO. Los asuntos que se encuentren en trámite o pendientes de resolver a la entrada en vigor del presente Decreto, se concluirán de conformidad con las disposiciones vigentes en el momento en que iniciaron.
+SEXTO. Se deroga la fracción X del artículo 13 de la Ley de Justicia Administrativa del Estado, así como todas las disposiciones que se opongan a esta Ley, en cuanto a los procedimientos de impugnación previstos en el artículo 186 del presente Decreto.
+SÉPTIMO. El valor inicial diario de la Unidad de Medida y Actualización, a la fecha de entrada en vigor del presente Decreto será el equivalente al que tenga el salario mínimo general vigente diario para todo el país, conforme a lo previsto en el artículo segundo transitorio del Decreto que reforma la Constitución Política de los Estados Unidos Mexicanos en materia de desindexación del salario mínimo, publicada en el Diario Oficial de la Federación el 27 de enero del presente año, hasta en tanto se actualice dicho valor de acuerdo al procedimiento establecido en el artículo quinto transitorio del citado Decreto.
+OCTAVO. La designación de los cinco consejeros que integrarán el Consejo Consultivo, por única ocasión, con el objeto de asegurar una renovación escalonada, y así lograr la sustitución cada dos años de los Consejeros de mayor antigüedad en el cargo de conformidad con lo siguiente:
+A. Dos Consejeros serán electos para un periodo de dos años;
+B. Tres Consejeros serán electos para un periodo de tres años.
+Pudiendo ser ratificados para un segundo periodo en los términos del artículo 73 de la presente Ley.
