@@ -27,3 +27,4 @@ El Secretario General de Gobierno
 Lic. Rafael Oceguera Ramos
 El Secretario de Educación Pública y Cultura
 Lic. Florentino Castro López
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
