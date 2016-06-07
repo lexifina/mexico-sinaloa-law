@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE JUNIO DE 2016)
+Artículo 152 Bis. Queda prohibida la quema de soca y esquilmos agrícolas cuya destrucción y eliminación se hará mediante diversos métodos como: trilla, rastreo u otros, que permitan que sean utilizados como composta, abono orgánico, alimento para animales, o bien, que sean reintegrados a la capa arable de la tierra con el propósito de que se fortalezcan las propiedades del suelo al reintegrarle los nutrientes que la actividad del hombre ha tomado previamente.

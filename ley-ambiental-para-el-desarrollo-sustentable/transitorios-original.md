@@ -24,3 +24,4 @@ El Secretario General de Gobierno
 C. Gerardo O. Vargas Landeros
 Secretario de Desarrollo Social y Humano
 C. Juan Ernesto Millán Pietsch
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
