@@ -1,0 +1,4 @@
+P.O. 17 DE JUNIO DE 2016.
+[N. DE E. TRANSITORIOS DEL DECRETO NÚMERO 560 POR EL QUE "SE REFORMAN LOS ARTÍCULOS 2, 7, 10, PRIMER PÁRRAFO, 15, 34, 35, 93, SEGUNDO PÁRRAFO Y 94 DE LA LEY DE RESPONSABILIDADES DE LOS SERVIDORES PÚBLICOS DEL ESTADO DE SINALOA".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+SEGUNDO. Las reformas a los artículos 34, 35 y 94 entrarán en vigor de conformidad con la gradualidad establecida en el Decreto número 177, publicado en el Periódico Oficial "El Estado de Sinaloa" No. 092 del jueves 31 de julio de 2014, Edición Extraordinaria, que declara adoptado en el Estado de Sinaloa el Sistema Procesal Penal Acusatorio y Oral y el inicio de vigencia gradual del Código Nacional de Procedimientos Penales.
