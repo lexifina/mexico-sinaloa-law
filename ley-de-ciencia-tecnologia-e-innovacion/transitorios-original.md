@@ -22,3 +22,4 @@ El Secretario General de Gobierno
 C. Gerardo O. Vargas Landeros
 El Secretario de Desarrollo Económico
 C. Eduardo Ortiz Hernández
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
