@@ -1,0 +1,3 @@
+P.O. 19 DE AGOSTO DE 2016.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO 613 QUE REFORMA Y DEROGA DIVERSAS DISPOSICIONES DEL CÓDIGO FAMILIAR Y DEL CÓDIGO DE PROCEDIMIENTOS FAMILIARES, AMBOS DEL ESTADO DE SINALOA".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".

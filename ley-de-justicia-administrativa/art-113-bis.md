@@ -1,3 +1,5 @@
+(DEROGADO PENÚLTIMO PÁRRAFO, P.O. 19 DE AGOSTO DE 2016)
+(DEROGADO ÚLTIMO PÁRRAFO, P.O. 19 DE AGOSTO DE 2016)
 (ADICIONADO, P.O. 14 DE SEPTIEMBRE DE 2011)
 ARTICULO 113 BIS. El recurso de revisión deberá presentarse con los siguientes requisitos:
 I. Nombre del recurrente;
