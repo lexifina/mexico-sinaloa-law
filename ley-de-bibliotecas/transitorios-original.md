@@ -12,3 +12,4 @@ El Gobernador Constitucional del Estado
 Juan S. Millán Lizárraga.
 El Secretario General de Gobierno El Secretario de Educación Pública y Cultura
 Gonzalo M. Armienta Calderón. J. Antonio Malacón Díaz.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
