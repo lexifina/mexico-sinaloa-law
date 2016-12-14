@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 13 DE DICIEMBRE DE 2016)
+ART. 34 bis-21. El pago de este impuesto se efectuará mediante declaración mensual definitiva que presentarán los contribuyentes en las oficinas autorizadas por la Secretaría de Administración y Finanzas del Poder Ejecutivo del Estado de Sinaloa, a más tardar el día 17 del mes siguiente a aquél en que se haya producido la enajenación de la prenda de que se trate.

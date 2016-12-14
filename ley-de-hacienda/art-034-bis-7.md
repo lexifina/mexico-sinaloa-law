@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 13 DE DICIEMBRE DE 2016)
+ART. 34 bis-7. Los retenedores a que se refieren los Artículos 34 bis-2 y 34 bis-5 de esta Ley, efectuarán el entero del impuesto a más tardar el día 15 del mes siguiente a aquél en que se causó, presentando para tal efecto declaración ante las oficinas, instituciones o medios electrónicos autorizados en términos del Código Fiscal del Estado de Sinaloa que corresponda al domicilio del organizador del evento y con alguno de los medios de pago autorizados. Dicho pago se considerará definitivo.
