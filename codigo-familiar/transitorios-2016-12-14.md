@@ -1,0 +1,7 @@
+P.O. 14 DE DICIEMBRE DE 2016.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 4 QUE REFORMA Y ADICIONA DIVERSOS ARTÍCULOS DEL CÓDIGO FAMILIAR DEL ESTADO DE SINALOA".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+ARTÍCULO SEGUNDO. El Ejecutivo del Estado contará con un plazo de noventa días posteriores al inicio de vigencia del presente Decreto para instituir el Registro de Deudores Alimentarios Morosos del Estado de Sinaloa, así como para realizar las adecuaciones correspondientes al Reglamento del Registro Civil y demás disposiciones aplicables para ajustar el funcionamiento de los entes gubernamentales involucrados con el Registro de Deudores Alimentarios Morosos del Estado de Sinaloa.
+ARTÍCULO TERCERO. El Ejecutivo del Estado realizará las previsiones administrativas y presupuestales necesarias para garantizar el cumplimiento de las disposiciones contenidas en el presente decreto.
+ARTÍCULO CUARTO. El Registro Civil contará con un plazo de noventa días a partir de la entrada en vigor del presente decreto para iniciar la integración del Registro Estatal de Deudores Alimentarios Morosos. Una vez que entre en funciones deberá dar trámite inmediato a las resoluciones judiciales que se hubieren efectuado durante el plazo de inicio de vigencia de este Decreto y la creación del mismo.
+ARTÍCULO QUINTO. Se derogan todas las disposiciones jurídicas que se opongan al presente Decreto.
