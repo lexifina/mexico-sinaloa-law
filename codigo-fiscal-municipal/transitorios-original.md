@@ -1,0 +1,23 @@
+ARTÍCULOS TRANSITORIOS
+PRIMERO. El presente Código entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+SEGUNDO. Los procedimientos de determinación, liquidación y apremio ya iniciados, continuarán ventilándose conforme a las disposiciones de éste Código.
+TERCERO. A partir de la fecha en que entre en vigor el presente Código, quedarán derogados: el Título Noveno denominado "DISPOSICIONES SUSTANTIVAS Y PROCEDIMENTALES" y sus CAPÍTULOS I, II, III, IV, V, VI, VII y VIII que comprenden los artículos del 107 al 218, todos de la Ley de Hacienda Municipal del Estado de Sinaloa, así como las disposiciones fiscales o administrativas que se opongan a lo preceptuado en este Código.
+CUARTO. Los recursos administrativos que se hayan interpuesto durante la vigencia de las disposiciones que deroga este Decreto, se substanciarán, conforme a las disposiciones fiscales vigentes al inicio de los mismos.
+QUINTO. Las infracciones y delitos cometidos durante la vigencia de las disposiciones fiscales que deroga este Decreto, se sancionarán en los términos de dichas disposiciones, a menos que el interesado manifieste su voluntad de acogerse al presente Código por considerarlo más favorable.
+SEXTO. Para efectos de este Código, lo relacionado con el instructivo para el dictamen de impuestos municipales que se señala en los artículos 89, 91 y 93 del mismo obligará a los particulares a partir del día siguiente de la publicación de dicho instructivo en el Periódico Oficial "El Estado de Sinaloa".
+SÉPTIMO. El valor inicial diario de la Unidad de Medida y Actualización, a la fecha de entrada en vigor del presente Decreto será el equivalente al que tenga el salario mínimo general vigente diario para todo el país, conforme a lo previsto en el artículo segundo transitorio del Decreto que reforma la Constitución Política de los Estados Unidos Mexicanos en materia de desindexación del salario mínimo, publicada en el Diario Oficial de la Federación el 27 de enero del presente año, hasta en tanto se actualice dicho valor de acuerdo al procedimiento establecido en el artículo quinto transitorio del citado Decreto.
+Es dado en el Palacio del Poder Legislativo del Estado, en la ciudad de Culiacán Rosales, Sinaloa, a los treinta días del mes de junio del año dos mil dieciséis.
+C. FRANCISCO SOLANO URÍAS
+DIPUTADO PRESIDENTE
+C. CLAUDIA LILIANA VALDEZ AGUILAR
+DIPUTADA SECRETARIA
+C. RAMÓN LUCAS LIZÁRRAGA
+DIPUTADO SECRETARIO
+Por lo tanto mando se imprima, publique, circule y se le dé el debido cumplimiento.
+Es dado en el Palacio del Poder Ejecutivo del Estado en la ciudad de Culiacán Rosales, Sinaloa, a los nueve días del mes de diciembre del año dos mil dieciséis.
+El Gobernador Constitucional del Estado
+LIC. MARIO LÓPEZ VALDEZ
+El Secretario General de Gobierno
+C. GERARDO O. VARGAS LANDEROS
+El Secretario de Administración y Finanzas
+C. ARMANDO VILLAREAL IBARRA
