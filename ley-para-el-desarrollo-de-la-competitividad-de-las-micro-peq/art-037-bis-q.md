@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2016)
+Artículo 37 Bis Q. La Secretaría de Desarrollo Económico será la encargada de dar a conocer las reglas de operación del Fondo de Apoyo, así como de su operación en forma permanente durante todo el año, a través de ventanillas físicas y electrónicas en las diversas dependencias e instituciones que integran su ordenamiento, así como el nombre de los beneficiarios de dicho Fondo de Apoyo en los portales de transparencia de Gobierno del Estado.

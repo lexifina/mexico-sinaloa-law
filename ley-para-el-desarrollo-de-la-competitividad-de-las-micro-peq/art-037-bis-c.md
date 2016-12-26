@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2016)
+Artículo 37 Bis C. En el marco de las leyes y ordenamientos de carácter presupuestal, administrativos, hacendarios, de coordinación fiscal y de concurrencia con el Gobierno Federal, la Secretaría de Desarrollo Económico realizará las gestiones necesarias para la formalización de los instrumentos jurídicos a que haya lugar para la constitución del Fondo de Apoyo a que se refiere la presente Ley.
+Para la operación y desarrollo del Fondo de Apoyo se obtendrán los recursos por los conceptos a que se refiere el artículo 37 Bis D de esta Ley, a cuyo efecto la Secretaría de Desarrollo Económico realizará los estudios necesarios y propondrá los instrumentos pertinentes.

@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 23 DE DICIEMBRE DE 2016)
+Artículo 37 Bis H. Obtenido el recurso multiplicado por los apoyos concurrentes referidos, la Secretaría de Desarrollo Económico realizará un estudio detallado de las entidades financieras con las que exista convenio de colaboración, para determinar cuál de ellas generará mejores rendimientos y tasas más bajas por apalancamiento financiero.
+De no existir convenio de colaboración con alguna entidad financiera que ofrezca mejores rendimientos y tasas, se priorizará la celebración de convenio correspondiente.
+Posterior al estudio realizado por la Secretaría de Desarrollo Económico, se emitirá el dictamen de asignación e inversión correspondiente, que expondrá las razones técnicas por las que se determinó la elección de una entidad o institución financiera en específico.
