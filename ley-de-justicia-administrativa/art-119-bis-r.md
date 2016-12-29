@@ -1,4 +1,5 @@
 (ADICIONADO, P.O. 14 DE SEPTIEMBRE DE 2011)
 ARTICULO 119 BIS-R. En caso que el Tribunal advierta que alguna persona modificó, alteró, destruyó o provocó la pérdida de información contenida en el Sistema de Justicia en Línea, se tomarán las medidas de protección necesarias, para evitar dicha conducta hasta que concluya el juicio, el cual se continuará tramitando a través de un juicio en la vía tradicional.
 Si el responsable es usuario del Sistema, se cancelará su firma electrónica avanzada, clave y contraseña para ingresar al Sistema de Justicia en Línea y no tendrá posibilidad de volver a promover Juicios en Línea.
-Sin perjuicio de lo anterior, y de las responsabilidades penales respectivas, se impondrá al responsable una multa de cien a ciento cincuenta veces el salario mínimo general vigente en el Estado de Sinaloa al momento de cometer la infracción.
+(REFORMADO, P.O. 28 DE DICIEMBRE DE 2016)
+Sin perjuicio de lo anterior, y de las responsabilidades penales respectivas, se impondrá al responsable una multa de cien a ciento cincuenta veces el valor diario de la Unidad de Medida y Actualización al momento de cometer la infracción.

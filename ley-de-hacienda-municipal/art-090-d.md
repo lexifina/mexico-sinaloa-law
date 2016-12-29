@@ -1,8 +1,10 @@
 (ADICIONADO, P.O. 3 DE MARZO DE 2004)
 ARTICULO 90-D.- Por la reproducción de materiales que contengan información pública de los Ayuntamientos del Estado de Sinaloa o de sus entidades públicas, se causarán derechos conforme a la siguiente:
-Tarifa
-ConceptoVeces el Salario Mínimo
-General Diario Vigente
+TARIFA:
+(REFORMADA SU DENOMINACIÓN, P.O. 28 DE DICIEMBRE DE 2016)
+CONCEPTOVECES EL VALOR
+DIARIO DE LA UNIDAD
+DE MEDIDA Y ACTUALIZACIÓN
 1. Por reproducción de:
 (REFORMADO, P.O. 9 DE DICIEMBRE DE 2015)
 a).- Por hoja impresa, después

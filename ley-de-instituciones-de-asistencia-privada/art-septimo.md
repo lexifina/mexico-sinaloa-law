@@ -21,3 +21,4 @@ Oscar J. Lara Aréchiga.Cenovio Ruíz Zazueta.
 El Secretario de EducaciónEl Secretario de Salud
 Pública y Cultura
 J. Antonio Malacón Díaz.Víctor Manuel Díaz Simental.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

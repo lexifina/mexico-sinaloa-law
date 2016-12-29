@@ -17,3 +17,4 @@ El Secretario General de Gobierno
 C. Gerardo O. Vargas Landeros
 Secretario de Administración y Finanzas
 C. Armando Villarreal Ibarra
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

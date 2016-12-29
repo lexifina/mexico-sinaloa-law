@@ -1,4 +1,4 @@
-LEY DE REGULARIZACION DE PREDIOS RURALES DEL ESTADO DE SINALOA
+LEY DE REGULARIZACIÓN DE PREDIOS RURALES DEL ESTADO DE SINALOA
 Ley publicada en el Periódico Oficial "El Estado de Sinaloa" el 14 de abril de 2000.
 EL CIUDADANO JUAN S. MILLAN LIZARRAGA, Gobernador Constitucional del Estado Libre y Soberano de Sinaloa, a sus habitantes hace saber:
 Que por el H. Congreso del mismo, se le ha comunicado lo siguiente:

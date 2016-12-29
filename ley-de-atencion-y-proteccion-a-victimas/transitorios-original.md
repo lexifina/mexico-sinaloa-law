@@ -23,3 +23,4 @@ El Secretario General de Gobierno
 C. Gerardo O. Vargas Landeros
 Procurador General de Justicia del Estado de Sinaloa
 C. Marco Antonio Higuera Gómez
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

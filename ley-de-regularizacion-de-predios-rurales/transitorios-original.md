@@ -6,13 +6,20 @@ ARTÍCULO CUARTO. Son aplicables de manera supletoria las disposiciones de los C
 Es dado en el Palacio del Poder Legislativo del Estado, en la ciudad de Culiacán Rosales, Sinaloa, a los treinta días del mes de marzo del dos mil.
 C. POLICARPO INFANTE FIERRO
 DIPUTADO PRESIDENTE
-C. MA. DEL CARMEN ARIAS RODRÍGUEZ C. RICARDO JAVIER CASAS LÓPEZ
-DIPUTADA SECRETARIA DIPUTADO SECRETARIO
+C. MA. DEL CARMEN ARIAS RODRÍGUEZ
+DIPUTADA SECRETARIA
+C. RICARDO JAVIER CASAS LÓPEZ
+DIPUTADO SECRETARIO
 Por tanto mando se imprima, publique, circule y se le dé el debido cumplimiento.
 Es dado en el Palacio del Poder Ejecutivo del Estado, en la ciudad de Culiacán Rosales, Sinaloa, a los cuatro días del mes de Abril de dos mil.
 El Gobernador Constitucional del Estado.
 Juan S. Millán Lizarraga.
-El Secretario General de GobiernoEl Secretario de Agricultura, Ganadería y Pesca.
-Gonzalo M. Armienta Calderón.Jesús Vega Acuña.
-El Secretario de Administración y FinanzasEl Secretario de Planeación y Desarrollo
-Oscar J. Lara Aréchiga.Jesús Aguilar Padilla.
+El Secretario General de Gobierno
+Gonzalo M. Armienta Calderón.
+El Secretario de Agricultura, Ganadería y Pesca.
+Jesús Vega Acuña.
+El Secretario de Administración y Finanzas
+Oscar J. Lara Aréchiga.
+El Secretario de Planeación y Desarrollo
+Jesús Aguilar Padilla.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
