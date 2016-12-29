@@ -6,7 +6,7 @@ TARIFA
 CONCEPTOSVECES EL SALARIO
 MÍNIMO GENERAL DIARIO
 VIGENTE EN SINALOA
-l. Por el derecho de paso o acceso1 por c/metro
+I. Por el derecho de paso o acceso1 por c/metro
 de negocios o establecimientos alineal o fracción.
 la autopista.
 II. Por la introducción de instalación40 por c/km
