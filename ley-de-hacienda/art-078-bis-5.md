@@ -1,2 +1,3 @@
-(ADICIONADO, P.O. 18 DE AGOSTO DE 2003)
-ART. 78 bis-5.- Por la búsqueda exhaustiva de información pública del Gobierno del Estado de Sinaloa o de sus entidades públicas que no se encuentre disponible en el momento, se causarán derechos por una cantidad equivalente a 2 salarios mínimos generales diario vigentes.
+(NOTA: EL 28 DE NOVIEMBRE DE 2017, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN EL RESOLUTIVO SEGUNDO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 5/2017, DECLARÓ LA INVALIDEZ DE ESTE ARTÍCULO, LA CUAL SURTIÓ EFECTOS EL 29 DE NOVIEMBRE DE 2017 DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/).
+(REFORMADO, P.O. 28 DE DICIEMBRE DE 2016)
+ART. 78 bis-5.- Por la búsqueda exhaustiva de información pública del Gobierno del Estado de Sinaloa o de sus entidades públicas que no se encuentre disponible en el momento, se causarán derechos por una cantidad equivalente a 2 veces el valor diario de la Unidad de Medida y Actualización.

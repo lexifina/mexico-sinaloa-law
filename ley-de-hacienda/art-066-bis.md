@@ -3,9 +3,11 @@
 (ADICIONADO, P.O. 28 DE DICIEMBRE DE 2007)
 ART. 66 bis.- El uso o aprovechamiento del derecho de vía, accesos, accesorios y otros servicios de las autopistas y carreteras estatales, estará sujeto a la siguiente:
 TARIFA
-CONCEPTOSVECES EL SALARIO
-MÍNIMO GENERAL DIARIO
-VIGENTE EN SINALOA
+(REFORMADO PRIMER PÁRRAFO, P.O. 28 DE DICIEMBRE DE 2016)
+VECES EL VALOR DIARIO DE
+LA UNIDAD DE MEDIDA Y
+ACTUALIZACIÓN
+CONCEPTO
 I. Por el derecho de paso o acceso1 por c/metro
 de negocios o establecimientos alineal o fracción.
 la autopista.

@@ -1,10 +1,11 @@
 (ADICIONADO, P.O. 25 DE DICIEMBRE DE 2002)
 ART. 78 bis-2.- La base gravable de este derecho es la modalidad en el que el solicitante pretenda prestar los servicios privados de seguridad, en los términos de la Ley de Seguridad Pública del Estado, conforme a la siguiente:
 TARIFA
-CONCEPTOVECES EL SALARIO
-MINIMO GENERAL
-DIARIO VIGENTE
-EN SINALOA
+(REFORMADO PRIMER PÁRRAFO, P.O. 28 DE DICIEMBRE DE 2016)
+VECES EL VALOR DIARIO DE
+LA UNIDAD DE MEDIDA Y
+ACTUALIZACIÓN
+CONCEPTO
 I.- Por el estudio y trámite de la solicitud
 para la autorización o para su revalidación:
 a).- Para prestar los servicios de

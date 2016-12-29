@@ -4,9 +4,11 @@ DERECHOS POR BUSQUEDA DE INFORMACION PUBLICA NO DISPONIBLE, POR REPRODUCCION Y E
 (ADICIONADO, P.O. 18 DE AGOSTO DE 2003)
 ART. 78 bis-3.- Por la reproducción de materiales que contengan información pública del Gobierno del Estado de Sinaloa o de sus entidades públicas, se causarán derechos conforme a la siguiente:
 T A R I F A
-CONCEPTOVECES EL SALARIO
-MINIMO GENERAL
-DIARIO VIGENTE
+(REFORMADO PRIMER PÁRRAFO, P.O. 28 DE DICIEMBRE DE 2016)
+VECES EL VALOR DIARIO DE
+LA UNIDAD DE MEDIDA Y
+ACTUALIZACIÓN
+CONCEPTO
 1.- Por reproducción de:
 (REFORMADO, P.O. 9 DE DICIEMBRE DE 2015)
 a).- Por hoja impresa después de las
