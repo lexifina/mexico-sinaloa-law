@@ -24,3 +24,4 @@ Secretario de Desarrollo Social y Humano
 C. Juan Ernesto Millán Pietsch
 El Secretario de Agricultura, Ganadería y Pesca
 Juan Nicasio Guerra Ochoa
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
