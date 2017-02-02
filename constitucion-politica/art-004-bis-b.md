@@ -22,3 +22,7 @@ VIII. El Estado adoptará las medidas especiales de carácter temporal encaminad
 Dichas medidas cesarán cuando se hayan alcanzado los objetivos de igualdad en la oportunidad y en el trato entre mujeres y hombres.
 (ADICIONADA, P.O. 16 DE MARZO DE 2016)
 IX. Todo individuo tiene derecho a recibir educación. El Estado y los Municipios garantizarán que la educación preescolar, primaria, secundaria y media superior que impartan sea obligatoria y gratuita.
+(ADICIONADA, P.O. 1 DE FEBRERO DE 2017)
+X. Todas las personas tienen derecho al libre acceso al internet y a las tecnologías de la información y comunicación.
+(ADICIONADO [N. DE E. PERTENECE A LA FRACCIÓN X], P.O. 1 DE FEBRERO DE 2017)
+El Estado y los Municipios deberán garantizar el acceso a internet gratuito inalámbrico de banda ancha, en los edificios e instalaciones de los diversos Poderes del Estado y de las dependencias y entidades de su administración, así como en los lugares públicos que para el efecto se determinen.
