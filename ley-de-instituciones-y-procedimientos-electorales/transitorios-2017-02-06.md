@@ -1,0 +1,5 @@
+P.O. 6 DE FEBRERO DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 89 POR EL QUE SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY DE INSTITUCIONES Y PROCEDIMIENTOS ELECTORALES DEL ESTADO DE SINALOA".]
+PRIMERO.- Las declaraciones de invalidez decretadas en los resolutivos que recaen a las acciones de inconstitucionalidad 64/2015 y sus acumuladas 65/2015, 66/2015, 68/2015 y 70/2015, y contenidas en el presente Decreto, surtieron sus efectos a partir de su notificación al Congreso del Estado de Sinaloa, el día 16 de octubre de 2015, por ello, ordénese su publicación de manera urgente en el Periódico Oficial "El Estado de Sinaloa".
+SEGUNDO.- Notifíquese de manera inmediata del cumplimiento de los resolutivos de las sentencias de las acciones de inconstitucionalidad expresadas en el artículo transitorio anterior a la Suprema Corte de Justicia de la Nación.
+TERCERO.- El presente Decreto entrará en vigor a partir del día siguiente al de su publicación en el Periódico Oficial "El Estado de Sinaloa".
