@@ -1,6 +1,7 @@
 ARTÍCULOS TRANSITORIOS
 PRIMERO. El presente Código entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
-SEGUNDO. Los procedimientos de determinación, liquidación y apremio ya iniciados, continuarán ventilándose conforme a las disposiciones de éste Código.
+(REFORMADO, P.O. 1 DE MARZO DE 2017)
+SEGUNDO. Los procedimientos de determinación, liquidación y apremio ya iniciados, continuarán ventilándose conforme a las disposiciones vigentes al momento de su determinación.
 TERCERO. A partir de la fecha en que entre en vigor el presente Código, quedarán derogados: el Título Noveno denominado "DISPOSICIONES SUSTANTIVAS Y PROCEDIMENTALES" y sus CAPÍTULOS I, II, III, IV, V, VI, VII y VIII que comprenden los artículos del 107 al 218, todos de la Ley de Hacienda Municipal del Estado de Sinaloa, así como las disposiciones fiscales o administrativas que se opongan a lo preceptuado en este Código.
 CUARTO. Los recursos administrativos que se hayan interpuesto durante la vigencia de las disposiciones que deroga este Decreto, se substanciarán, conforme a las disposiciones fiscales vigentes al inicio de los mismos.
 QUINTO. Las infracciones y delitos cometidos durante la vigencia de las disposiciones fiscales que deroga este Decreto, se sancionarán en los términos de dichas disposiciones, a menos que el interesado manifieste su voluntad de acogerse al presente Código por considerarlo más favorable.
@@ -21,3 +22,4 @@ El Secretario General de Gobierno
 C. GERARDO O. VARGAS LANDEROS
 El Secretario de Administración y Finanzas
 C. ARMANDO VILLAREAL IBARRA
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS ACUERDOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
