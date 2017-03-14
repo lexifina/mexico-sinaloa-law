@@ -1,0 +1,6 @@
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 13 DE MARZO DE 2017)
+CAPITULO VIII
+DE LA REFORMA REGULATORIA
+(ADICIONADO, P.O. 13 DE MARZO DE 2017)
+Art. 109 Bis C. La Reforma Regulatoria es una Política Pública de desarrollo obligatorio de manera permanente, continua y coordinada para todas las autoridades del Estado y los Municipios en sus respectivos ámbitos de competencia, que consiste en la generación de normas claras, de trámites y servicios simplificados, así como de instituciones eficaces para su creación y aplicación, que se orienten a obtener el mayor valor posible de los recursos disponibles y del óptimo funcionamiento de las actividades comerciales, industriales, productivas, de servicio y de desarrollo humano de la sociedad en su conjunto.
+El Congreso del Estado mediante una ley creará el Sistema Estatal de Mejora Regulatoria en términos de la Ley General de la materia, así como los instrumentos necesarios para que las leyes emitidas por dicho Congreso y las normas de carácter general que emita cualquier autoridad, entidad, órgano u organismo gubernamental, así como órganos autónomos de ámbito estatal y municipal garanticen beneficios superiores a sus costos y el máximo bienestar para la sociedad, incorporando para ello el uso de las tecnologías de la información.

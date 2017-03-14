@@ -9,7 +9,6 @@ VI. Todo individuo tiene derecho a buscar, recibir y difundir informaciones e id
 VII. Cuando se trate de datos personales en información creada, administrada o en posesión de las entidades públicas, el individuo tendrá libre acceso a todo registro, archivo o banco de datos en que se contengan referencias a su persona, pudiendo requerir la actualización, rectificación, confidencialidad o supresión de esta información si lesiona o restringe alguno de sus derechos.
 VIII. Toda persona afectada por informaciones emitidas en su perjuicio a través de medios de difusión y que se dirijan al público en general, tiene derecho a efectuar por el mismo órgano de difusión y en condiciones similares a la difusión efectuada, su rectificación o respuesta en los términos que establezca la ley.
 IX. Los ciudadanos tienen derecho a acceder, en condiciones de igualdad, a las funciones y cargos públicos, con excepción de los sujetos a elección popular que se regirán por su propia normativa, en los términos que establezca la ley del servicio civil de carrera.
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE FRACCIÓN, VÉASE TRANSITORIO PRIMERO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (REFORMADA, P.O. 22 DE OCTUBRE DE 2014)
 X. Toda persona es inocente en tanto no se declare su responsabilidad mediante sentencia emitida por el juez de la causa;
 XI. Se prohíbe la obtención y el uso en cualquier procedimiento de la prueba obtenida ilícitamente.
