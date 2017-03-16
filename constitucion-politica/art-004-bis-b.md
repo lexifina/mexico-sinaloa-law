@@ -26,3 +26,5 @@ IX. Todo individuo tiene derecho a recibir educación. El Estado y los Municipio
 X. Todas las personas tienen derecho al libre acceso al internet y a las tecnologías de la información y comunicación.
 (ADICIONADO [N. DE E. PERTENECE A LA FRACCIÓN X], P.O. 1 DE FEBRERO DE 2017)
 El Estado y los Municipios deberán garantizar el acceso a internet gratuito inalámbrico de banda ancha, en los edificios e instalaciones de los diversos Poderes del Estado y de las dependencias y entidades de su administración, así como en los lugares públicos que para el efecto se determinen.
+(ADICIONADA, P.O. 15 DE MARZO DE 2017)
+XI. Toda familia tiene derecho a disfrutar de vivienda digna y decorosa. La Ley establecerá los instrumentos y apoyos necesarios a fin de alcanzar tal objetivo.
