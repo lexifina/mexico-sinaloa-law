@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE MARZO DE 2017)
+Art. 76 Bis A. Se crea la Fiscalía Especializada en Combate a la Corrupción, la cual tendrá nivel de Vicefiscal General; el Fiscal Especializado en Combate a la Corrupción será designado y removido por el Fiscal General del Estado. El nombramiento y remoción podrán ser objetados por el Congreso del Estado por el voto de las dos terceras partes de sus miembros presentes, en el plazo que fije la Ley, si el Congreso del Estado no se pronunciare en este plazo, se entenderá que no tiene objeción.
