@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO [N. DE E. REPUBLICADO], P.O. 26 DE DICIEMBRE DE 2011)
 ART. 15-A.- No se causará el impuesto a que se refiere este Capítulo, por la tenencia o uso de los siguientes vehículos:
 I. Los eléctricos e híbridos;

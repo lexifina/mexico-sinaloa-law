@@ -1,8 +1,6 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE SECCIÓN, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADA [N. DE E. REPUBLICADA] CON EL ARTÍCULO QUE LA INTEGRA, P.O. 26 DE DICIEMBRE DE 2011)
 SECCIÓN II
 AUTOMÓVILES
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO [N. DE E. REFORMADO], P.O. 26 DE DICIEMBRE DE 2011)
 ART. 15-D.- Tratándose de automóviles, omnibuses, camiones y tractores no agrícolas tipo quinta rueda, nuevos, el impuesto se calculará como a continuación se indica:
 I. En el caso de automóviles nuevos, destinados al transporte hasta de quince pasajeros, el impuesto será la cantidad que resulte de aplicar al valor total del vehículo, la siguiente:

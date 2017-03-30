@@ -2,7 +2,7 @@
 CAPÍTULO XIV
 DERECHOS POR LOS SERVICIOS DE AUTORIZACIÓN, REGISTRO Y SUPERVISIÓN PARA LA INSTALACIÓN Y OPERACIÓN DE CASAS DE EMPEÑO
 (ADICIONADO, P.O. 13 DE DICIEMBRE DE 2016)
-ART. 78 bis-9. Los derechos por los servicios a que se refiere este capítulo, se pagarán conforme a la siguiente:
+ART. 78 BIS-9. Los derechos por los servicios a que se refiere este capítulo, se pagarán conforme a la siguiente:
 CONCEPTOVECES EL VALOR DIARIO
 DE LA UNIDAD DE
 MEDIDA Y ACTUALIZACIÓN.

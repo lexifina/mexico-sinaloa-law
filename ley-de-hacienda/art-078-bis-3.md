@@ -2,7 +2,7 @@
 CAPITULO XIII
 DERECHOS POR BUSQUEDA DE INFORMACION PUBLICA NO DISPONIBLE, POR REPRODUCCION Y ENVÍO DE MATERIALES QUE CONTENGAN INFORMACION PUBLICA DEL GOBIERNO DEL ESTADO DE SINALOA O DE SUS ENTIDADES PUBLICAS
 (ADICIONADO, P.O. 18 DE AGOSTO DE 2003)
-ART. 78 bis-3.- Por la reproducción de materiales que contengan información pública del Gobierno del Estado de Sinaloa o de sus entidades públicas, se causarán derechos conforme a la siguiente:
+ART. 78 BIS-3.- Por la reproducción de materiales que contengan información pública del Gobierno del Estado de Sinaloa o de sus entidades públicas, se causarán derechos conforme a la siguiente:
 T A R I F A
 (REFORMADO PRIMER PÁRRAFO, P.O. 28 DE DICIEMBRE DE 2016)
 VECES EL VALOR DIARIO DE

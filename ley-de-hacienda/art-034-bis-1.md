@@ -1,5 +1,5 @@
 (REFORMADO, P.O. 13 DE DICIEMBRE DE 2016)
-ART. 34 bis-1. Para los efectos de esta Ley se entiende por:
+ART. 34 BIS-1. Para los efectos de esta Ley se entiende por:
 I. Concurso, todo evento en el cual sean necesarias habilidades, aptitudes, características literarias, musicales, artísticas, académicas, deportivas o de cualquier otra índole que resulten indispensables para participar en dicho evento y acordes al objetivo del mismo, y de cuya participación tenga como objetivo la obtención de un premio.
 II. Rifa, lotería o sorteo, todo evento en el cual se participe mediante un boleto, billete, contraseña o cualquier otro comprobante en alguna actividad organizada por persona física, moral o unidades económicas en las que intervenga para la obtención del premio, la suerte.
 No se considerará como premio el reintegro correspondiente al billete que permitió participar en loterías.

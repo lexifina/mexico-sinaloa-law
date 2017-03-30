@@ -1,8 +1,6 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE SECCIÓN, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADA [N. DE E. REPUBLICADA] CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 26 DE DICIEMBRE DE 2011)
 SECCIÓN IV
 VEHÍCULOS USADOS
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO [N. DE E. REFORMADO], P.O. 26 DE DICIEMBRE DE 2011)
 ART. 15-J.- Tratándose de vehículos de fabricación nacional o importados, de hasta nueve años modelo (sic) anteriores al de aplicación de este Capítulo, a que se refiere el artículo 15-D fracción II de esta Ley, así como de aeronaves, el impuesto será el que resulte de multiplicar el importe del impuesto causado en el ejercicio fiscal inmediato anterior por el factor que corresponda, conforme a los años de antigüedad del vehículo, de acuerdo con la siguiente:
 TABLA

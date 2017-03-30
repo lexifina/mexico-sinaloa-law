@@ -1,8 +1,6 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DE LA PRESENTE SECCIÓN, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADA [N. DE E. REPUBLICADA], CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 26 DE DICIEMBRE DE 2011)
 SECCIÓN I
 VEHÍCULOS NUEVOS Y DE HASTA NUEVE AÑOS MODELO ANTERIOR DISPOSICIONES GENERALES
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO [N. DE E. REFORMADO], P.O. 26 DE DICIEMBRE DE 2011)
 ART. 15-B.- En el caso de vehículos nuevos o importados, el impuesto deberá calcularse y enterarse en el momento en el cual se solicite el registro del vehículo, permiso provisional para circulación en traslado o alta del vehículo.
 Los importadores ocasionales efectuarán el pago del impuesto a que se refiere este Capítulo, correspondiente al primer año de calendario, en el momento en que soliciten el registro del vehículo de que se trate, ante las oficinas de la Secretaría de Administración y Finanzas del Poder Ejecutivo del Estado de Sinaloa. Por el segundo y siguientes años de calendario, se estará a lo dispuesto en el artículo 10 de esta Ley.
