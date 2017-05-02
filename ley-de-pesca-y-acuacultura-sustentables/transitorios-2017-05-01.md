@@ -1,0 +1,3 @@
+P.O. 1 DE MAYO DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO 114 DEL H. CONGRESO DEL ESTADO.- SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE PESCA Y ACUACULTURA SUSTENTABLES DEL ESTADO DE SINALOA".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
