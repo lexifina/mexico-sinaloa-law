@@ -1,0 +1,3 @@
+P.O. 7 DE JUNIO DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO: 144 QUE REFORMA LAS FRACCIONES I, II Y III DEL ARTÍCULO 15 DE LA LEY DE INSTITUCIONES Y PROCEDIMIENTOS ELECTORALES DEL ESTADO DE SINALOA".]
+UNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
