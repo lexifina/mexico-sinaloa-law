@@ -1,0 +1,3 @@
+P.O. 15 DE JUNIO DE 2017.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO: 155 POR EL QUE SE REFORMAN Y ADICIONAN LOS ARTÍCULOS 10, 14, 16 Y 17 DE LA LEY DE INSTITUCIONES Y PROCEDIMIENTOS ELECTORALES DEL ESTADO DE SINALOA".]
+ÚNICO. El presente Decreto entrará en vigor a partir del día de su publicación en el Periódico Oficial "El Estado de Sinaloa".
