@@ -14,3 +14,5 @@ XI. Firma Electrónica Avanzada: Conjunto de datos consignados en un mensaje ele
 XII. Juicio en la Vía Tradicional: El juicio contencioso administrativo local que se substancia recibiendo las promociones y demás documentales en manuscrito o impresos en papel, y formando un expediente también en papel, donde se agregan las actuaciones procesales.
 XIII. Juicio en Línea: Substanciación y resolución del juicio contencioso administrativo local en todas sus etapas, a través del Sistema de Justicia en Línea.
 XIV. Sistema de Justicia en Línea: Sistema informático establecido por el Tribunal a efecto de registrar, controlar, procesar, almacenar, difundir, transmitir, gestionar, administrar y notificar el procedimiento contencioso administrativo que se sustancie ante el Tribunal.
+(ADICIONADA, P.O. 26 DE JUNIO DE 2017)
+XV. Tribunal: Tribunal de Justicia Administrativa del Estado.

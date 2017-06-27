@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE JUNIO DE 2017)
+Artículo 27 Bis D. Los órganos, áreas ejecutivas y servidores públicos del Tribunal Electoral estarán obligados a proporcionar la información, permitir la revisión y atender los requerimientos que les presente el órgano interno de control, sin que dicha revisión interfiera u obstaculice el ejercicio de las funciones o atribuciones que esta Ley o las leyes aplicables les confieren.

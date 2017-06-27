@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE JUNIO DE 2017)
+ARTICULO 32 BIS-E. El órgano interno de control deberá inscribir y mantener actualizada la información correspondiente del Sistema de evolución patrimonial, de declaración de intereses y constancia de presentación de declaración fiscal, de todos los servidores públicos del Tribunal, de conformidad con la Ley del Sistema Anticorrupción y la Ley de Responsabilidades Administrativas, ambas del Estado, y Ley General de Responsabilidades Administrativas.
