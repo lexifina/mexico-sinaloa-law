@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 2 DE AGOSTO DE 2017)
+ARTICULO 92 BIS C. Cualquier persona, cuando presuma que los titulares de los Órganos Internos de Control de cualquiera de los organismos constitucionales autónomos, haya incurrido en los supuestos previstos en el Título VI de la Constitución Política del Estado de Sinaloa, podrá presentar denuncias ante las autoridades correspondientes, acompañándola de los documentos y evidencias en las cuales se sustente.
