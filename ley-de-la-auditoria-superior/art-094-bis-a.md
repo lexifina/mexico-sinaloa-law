@@ -1,5 +1,1 @@
-(ADICIONADO, P.O. 19 DE ABRIL DE 2013)
-Artículo 94 Bis A. Las actuaciones y diligencias se practicarán en días y horas hábiles. Son días hábiles todos los del año, excepto los sábados y domingos; el primero de enero; el primer lunes de febrero en conmemoración del cinco de febrero; el tercer lunes de marzo en conmemoración del veintiuno de marzo; el primero y cinco de mayo, el dieciséis de septiembre; el tercer lunes de noviembre en conmemoración del veinte de noviembre; cada seis años, el día que corresponda a la transmisión del poder ejecutivo federal; periodos vacacionales, así como aquellos que mediante acuerdo del Auditor Superior del Estado se declaren como inhábiles.
-El acuerdo anteriormente referido deberá publicarse en el Periódico Oficial "El Estado de Sinaloa", la página electrónica oficial y en sitios visibles de la Auditoría Superior del Estado. Son horas hábiles las comprendidas de las nueve a las dieciséis horas.
-Cuando una actuación o diligencia se hubiese iniciado en hora hábil podrá concluirse en hora inhábil.
-La existencia de personal de guardia o permanencia del personal en las oficinas de la Auditoría Superior del Estado, en días inhábiles o fuera del horario señalado en el párrafo anterior, no habilita los días ni las horas.
+Artículo 94 Bis A. (DEROGADO, P.O. 9 DE OCTUBRE DE 2017)

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 9 DE OCTUBRE DE 2017)
+Artículo 75 Bis F. De la revisión efectuada al ejercicio fiscal en curso o a los ejercicios anteriores, la Auditoría Superior del Estado rendirá un informe al Congreso del Estado, a más tardar a los 10 días hábiles posteriores a la conclusión de la auditoría. Asimismo, promoverá las acciones que, en su caso, correspondan para el fincamiento de las responsabilidades administrativas, penales y políticas a que haya lugar, conforme lo establecido en esta Ley y demás legislación aplicable.

@@ -10,7 +10,7 @@ Los servidores públicos de la Contaduría Mayor de Hacienda del Congreso del Es
 Artículo Octavo. Una vez nombrado el Auditor Superior del Estado, en un periodo no mayor a cuarenta y cinco días, elaborará el proyecto de Reglamento Interior de la Auditoría Superior del Estado, presentándolo a la Comisión de Fiscalización para su aprobación, el cual deberá ser publicado en el Periódico Oficial "El Estado de Sinaloa".
 Artículo Noveno. En tanto se reforma la Ley Orgánica del Congreso del Estado de Sinaloa, para crear la Comisión de Fiscalización, que es la comisión de coordinación entre el Congreso del Estado y la Auditoría Superior del Estado, en la revisión y fiscalización de las cuentas públicas, las Comisiones de Glosa y de Vigilancia, ejercerán las funciones de la Comisión de Fiscalización, en los términos siguientes:
 A. La Comisión de Glosa, en el ejercicio de sus funciones, tendrá las siguientes atribuciones:
-l. Recibir de la Auditoría Superior del Estado los informes del resultado de las revisiones de las cuenta públicas;
+I. Recibir de la Auditoría Superior del Estado los informes del resultado de las revisiones de las cuenta públicas;
 II. Presentar al Congreso del Estado, durante el período de sesiones que corresponda, el dictamen de la cuenta pública de la Hacienda Pública Estatal y dictámenes de las cuentas públicas municipales, para su discusión y aprobación en su caso;
 III. Presentar Informe General al Congreso del Estado, para su conocimiento durante el segundo periodo ordinario de sesiones, de los resultados obtenidos de la revisión de los dictámenes emitidos por despachos de Contadores Públicos independientes sobre los estados financieros anuales de los entes públicos estatales o municipales y de aquellos entes que reciban o administren recursos públicos;
 IV. Hacer del conocimiento del Congreso del Estado, de las sanciones aplicadas por la Auditoría Superior del Estado;
@@ -19,7 +19,7 @@ VI. Por conducto del Presidente de la Comisión, citar al Auditor Superior del E
 VII. Ser receptora de denuncias o queja en contra de servidores públicos de las entidades fiscalizadas relativas al manejo de recursos financieros, materiales y humanos, para una vez recibidas éstas sean canalizadas a la Auditoría Superior del Estado, para su debido seguimiento; y,
 VIII. En general, todas las que deriven de esta Ley y de las disposiciones generales y acuerdos que tome el Congreso del Estado.
 B. La Comisión de Vigilancia, tendrá las siguientes atribuciones:
-l. En el ejercicio de sus funciones:
+I. En el ejercicio de sus funciones:
 a. Conocer de las necesidades y requerimientos en materia de personal, equipo en general, capacitación, y en todo lo necesario que permita el fortalecimiento y buen funcionamiento de la Auditoria Superior del Estado;
 b. Conocer de las irregularidades que se presenten en el funcionamiento de la Auditoría Superior del Estado;
 c. Vigilar que el funcionamiento de la Auditoría Superior del Estado y la conducta de sus servidores públicos se apeguen a lo dispuesto por esta Ley y demás disposiciones aplicables;

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 9 DE OCTUBRE DE 2017)
+Artículo 75 Bis C. El titular de la Auditoría Superior del Estado, con base en el dictamen técnico jurídico que al efecto emitan las áreas competentes de la Auditoría Superior (sic) Estado autorizará, en su caso, la revisión de la gestión financiera correspondiente, ya sea del ejercicio fiscal en curso o de ejercicios anteriores a la Cuenta Pública en revisión.

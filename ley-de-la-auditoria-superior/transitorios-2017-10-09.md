@@ -1,0 +1,11 @@
+P.O. 9 DE OCTUBRE DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 248 QUE REFORMA, ADICIONA Y DEROGA DIVERSAS DISPOSICIONES DE LA LEY DE AUDITORÍA SUPERIOR DEL ESTADO DE SINALOA".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+SEGUNDO. La Auditoría Superior del Estado deberá realizar las modificaciones pertinentes a su Reglamento Interior derivadas del presente Decreto dentro de los 90 días posteriores al inicio de vigencia del mismo.
+TERCERO. La Comisión de Fiscalización deberá desarrollar el procedimiento establecido en el artículo 20 de la presente Ley, dentro de los 60 días posteriores al inicio de vigencia del presente Decreto, para la designación del titular del Órgano Interno de Control de la Auditoría Superior del Estado.
+CUARTO. Los procedimientos iniciados por las autoridades de la Auditoría Superior del Estado con anterioridad a la entrada en vigor del presente Decreto, serán concluidos conforme a las disposiciones aplicables vigentes a su inicio.
+QUINTO. En tanto no se constituya la Unidad Técnica de Evaluación, la Comisión de Fiscalización ejercerá las atribuciones de dicha Unidad.
+SEXTO. La Comisión de Fiscalización, expedirá dentro de los 90 días siguientes, contados a partir de la entrada en vigencia del presente Decreto, el Reglamento Interior de la Unidad Técnica de Evaluación; cuya estructura y organización se realizará conforme a los principios de transparencia, austeridad, racionalidad y disciplina del gasto público.
+Al momento de que el Congreso del Estado realice el nombramiento del titular de la Unidad Técnica de Evaluación, se entenderá constituida dicha Unidad.
+SÉPTIMO. Para efecto de lo señalado en el artículo 22, fracción XXVI, relativo a la comparecencia del Auditor Superior del Estado en funciones para una evaluación exhaustiva de su desempeño, ésta regirá a partir de la revisión del ejercicio fiscal 2017 y se dará en un plazo no mayor a 30 días, ni menor a 20 días hábiles posteriores a que concluya el procedimiento de revisión de cuentas públicas por el Pleno del Congreso del Estado.
+Siendo la Comisión de Fiscalización a través de su Presidente quien le cite a comparecer.

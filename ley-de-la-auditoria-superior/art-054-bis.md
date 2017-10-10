@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 9 DE OCTUBRE DE 2017)
+Artículo 54 Bis. En aquellos casos en que la Comisión de Fiscalización detecte errores en el Informe General o bien, considere necesario aclarar o profundizar el contenido del mismo, podrá solicitar a la Auditoría Superior del Estado la entrega por escrito de las explicaciones pertinentes, así como la comparecencia del Titular de la Auditoría Superior del Estado o de otros servidores públicos de la misma, las ocasiones que considere necesarias, a fin de realizar las aclaraciones correspondientes, sin que ello implique la reapertura del Informe General.
+La Comisión de Fiscalización podrá formular recomendaciones a la Auditoría Superior del Estado, las cuales serán incluidas en las conclusiones sobre el Informe General.

@@ -1,20 +1,20 @@
-(REFORMADO PRIMER PÁRRAFO, P.O. 28 DE DICIEMBRE DE 2016)
-Artículo 34 Bis D. La Auditoría Superior del Estado, sancionará con multa administrativa de 500 a 2000 veces el valor diario de la Unidad de Medida y Actualización cuando:
-(ADICIONADA, P.O. 19 DE ABRIL DE 2013)
-I. Los servidores públicos o los particulares, no atiendan los requerimientos a que se refiere el artículo anterior, salvo que exista disposición legal o mandato judicial que se los impida.
-(ADICIONADA, P.O. 19 DE ABRIL DE 2013)
-II. Los servidores públicos de las entidades fiscalizables, que en el ejercicio de sus funciones incumplan con:
-A. Rendir oportunamente la cuenta pública;
-B. Llevar a cabo la integración o comprobación de la cuenta pública del Gobierno del Estado y los Municipios, así como de los informes sobre la aplicación de los recursos públicos recibidos durante el ejercicio fiscal anterior de los Entes Públicos Estatales y Municipales, conforme a lo establecido por los ordenamientos aplicables;
-C. Rendir informes o dar contestación en los términos de esta Ley, a las observaciones que formule esta Auditoría Superior del Estado, derivadas de la revisión y fiscalización de la cuenta pública o del resultado de las auditorías practicadas;
-D. Rendir informes acerca de la solventación de los pliegos de observaciones formulados y notificados por la Auditoría Superior del Estado;
-E. Remitir los Informes de Gestión financiera en el plazo que establece esta Ley;
-F. Realizar el gasto en base a los presupuestos de egresos en los términos en que hayan sido aprobados;
-G. Las obligaciones que esta Ley establece;
-H. Observar las normas aplicables, los procedimientos, métodos y sistemas en materia de contabilidad gubernamental;
-I. Caucionar oportunamente el manejo de los recursos públicos; y,
-J. Cuando los Servidores Públicos de los Entes Públicos Estatales o Municipales no rindan los informes sobre la aplicación de los recursos públicos recibidos durante el ejercicio fiscal anterior, dentro de los plazos que establece la Constitución Política del Estado de Sinaloa, y esta Ley.
-(ADICIONADO, P.O. 19 DE ABRIL DE 2013)
-Las multas administrativas que se establecen en este artículo se fincarán tomando en cuenta las condiciones económicas del infractor, la gravedad de la infracción cometida, los medios de ejecución y, en su caso, el nivel jerárquico al momento de cometer la infracción.
-(ADICIONADO, P.O. 19 DE ABRIL DE 2013)
-Para la determinación y aplicación de las multas establecidas en este artículo se aplicará en lo conducente el procedimiento que establece el artículo 94 de esta Ley.
+(REFORMADO, P.O. 9 DE OCTUBRE DE 2017)
+Artículo 34 Bis D. La Auditoría Superior del Estado podrá imponer multas conforme a lo siguiente:
+I. Cuando los servidores públicos y las personas físicas no atiendan los requerimientos a que refiere el artículo precedente, salvo que exista disposición legal o mandato judicial que se los impida, o por causas ajenas a su responsabilidad, la Auditoría Superior del Estado podrá imponerles una multa mínima de ciento cincuenta a una máxima de dos mil veces el valor diario de la Unidad de Medida y Actualización;
+II. En el supuesto de la fracción anterior, para el caso de personas morales, públicas o privadas, la multa consistirá en un mínimo de seiscientas cincuenta a diez mil veces el valor diario de la Unidad de Medida y Actualización;
+III. Se aplicarán las multas previstas en las fracciones I y II de este artículo a los terceros personas físicas y morales, respectivamente que hubieran firmado contratos para explotación de bienes públicos o recibido en concesión o subcontratado obra pública, administración de bienes o prestación de servicios mediante cualquier título legal con las entidades fiscalizadas, cuando no entreguen la documentación e información que les requiera la Auditoría Superior del Estado;
+IV. La reincidencia se sancionará con una multa hasta del doble de la impuesta anteriormente, sin perjuicio de que persista la obligación de atender el requerimiento respectivo;
+V. Las multas establecidas en esta Ley tendrán el carácter de créditos fiscales y se fijarán en cantidad líquida. La Secretaría de Administración y Finanzas y las Tesorerías municipales se encargarán de hacer efectivo su cobro en términos del Código Fiscal del Estado y del Código Fiscal Municipal, respectivamente, y de las demás disposiciones aplicables;
+VI. Para imponer la multa que corresponda, la Auditoría Superior del Estado debe oír previamente al presunto infractor y tener en cuenta sus condiciones económicas, así como la gravedad de la infracción cometida y en su caso, elementos atenuantes, su nivel jerárquico y la necesidad de evitar prácticas tendientes a contravenir las disposiciones contenidas en esta Ley, en base al siguiente procedimiento:
+a) Se citará personalmente al presunto o presuntos responsables para que comparezcan personalmente a una audiencia, haciéndoles saber los hechos u omisiones que se les imputan y que sean causa de imposición de la multa en los términos de esta Ley;
+b) En la audiencia respectiva el presunto o presuntos responsables podrán manifestar lo que a su derecho convenga, ofrecer pruebas y formular alegatos que tengan relación con los hechos que se les imputan. El presunto o presuntos responsables podrán asistir acompañados de su abogado o persona de su confianza;
+c) La audiencia a que se refieren las fracciones anteriores, deberá celebrarse diez días hábiles posteriores a la fecha en que surta efectos la notificación del oficio citatorio, en el lugar, día y hora que el mismo señale;
+d) La notificación del oficio citatorio deberá realizarse de manera personal, será legalmente válida cuando se efectúe en el domicilio correspondiente o en su centro de trabajo;
+e) Cuando no comparezcan sin causa justa, se celebrará la audiencia y se tendrán por ciertos los hechos que se le imputan y por precluido su derecho para ofrecer pruebas o formular alegatos, debiendo resolverse con los elementos que obren en el expediente respectivo. Cuando la no comparecencia sea por causa justa deberá acreditarse esta circunstancia antes o durante la celebración de la audiencia;
+f) En la audiencia el presunto responsable de forma directa o a través de su representante podrá ofrecer las pruebas que a su interés convenga;
+g) Una vez desahogadas las pruebas que fueron admitidas, el presunto responsable o responsables, por sí o a través de su defensor, podrán formular los alegatos que a su derecho convenga, ya sea en forma oral o escrita;
+h) En el procedimiento no se admitirán ni desahogarán incidentes de previo y especial pronunciamiento ni la prueba confesional de las autoridades, así como tampoco aquellas pruebas que sean contrarias a la moral o al derecho;
+i) Cuando hubiesen concluido las etapas de ofrecimiento de pruebas y alegatos, la Auditoría Superior del Estado procederá a cerrar la instrucción del procedimiento citando éste para resolución; y,
+j) Dentro de un término de cuarenta y cinco días hábiles siguientes al cierre de la instrucción, deberá emitirse la resolución en la que se determinará la existencia o inexistencia de responsabilidad y fincar, en su caso, el monto de la multa al responsable o a los responsables, debiendo notificar a estos la resolución correspondiente.
+VII. Las multas que se impongan en términos de este artículo son independientes de las sanciones administrativas y penales que, en términos de las leyes en dichas materias, resulten aplicables por la negativa a entregar información a la Auditoría Superior del Estado, así como por los actos de simulación que se presenten para entorpecer y obstaculizar la actividad fiscalizadora o la entrega de información falsa.
+El monto recaudado por concepto de multas se destinará al fortalecimiento de las actividades de fiscalización, capacitación e infraestructura de la Auditoría Superior del Estado. El cual será recuperado mediante los convenios que se celebren con la Secretaría de Administración y Finanzas y las Tesorerías municipales para tal efecto.
