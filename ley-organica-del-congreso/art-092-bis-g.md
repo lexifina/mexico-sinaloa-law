@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 20 DE DICIEMBRE DE 2017)
+ARTICULO 92 BIS G.- El Órgano Interno de Control deberá inscribir y mantener actualizada la información correspondiente del sistema de evolución patrimonial, de declaración de intereses y constancia de presentación de declaración fiscal; de todos los servidores públicos del Congreso del Estado, de conformidad con la Ley General de Responsabilidades Administrativas, Ley del Sistema Anticorrupción y Ley de Responsabilidades Administrativas del Estado.
+El titular del Órgano Interno de Control se abstendrá de desempeñar cualquier otro empleo, trabajo o comisión públicos o privados, con excepción de los cargos docentes.

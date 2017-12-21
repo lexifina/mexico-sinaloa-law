@@ -1,0 +1,11 @@
+P.O. 20 DE DICIEMBRE DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 291 QUE REFORMA, ADICIONA Y DEROGA DIVERSAS DISPOCISIONES DE LA LEY DE HACIENDA, Y LEY DE TRÁNSITO Y TRANSPORTES, AMBAS DEL ESTADO DE SINALOA".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+SEGUNDO. Aquellos vehículos que antes de la entrada en vigor de este Decreto hayan adquirido su placa de identificación vehicular, están obligados a realizar el canje para adquirir la placa permanente al término de su vigencia, de conformidad con las disposiciones fiscales anteriores, que era de tres años.
+TERCERO. Las personas físicas y morales tenedoras o usuarias de vehículos, que previo a la entrada en vigor del presente Decreto, tengan adeudos por concepto del Impuesto sobre Tenencia o Uso de Vehículos, continuarán obligadas a su pago, en los términos de las disposiciones legales vigentes en la fecha de su causación.
+CUARTO. A más tardar el 31 de diciembre de 2017, el titular del Poder Ejecutivo del Estado deberá emitir un Acuerdo de Carácter General, para que durante el periodo comprendido del 01 de enero, al 31 de diciembre del año 2018, se otorgue un estímulo fiscal a las personas propietarias de vehículos con una antigüedad de 10 o más años, que se encuentren en los supuestos del artículo 48, fracción III, inciso D), numerales 1, 2 y 5 de la Ley de Hacienda del Estado de Sinaloa, y se aplicará de la siguiente manera:
+1. Para vehículo de servicio particular55%
+2. Para vehículo de servicio público estatal55%
+5 (SIC). Para motocicletas33.33%
+La aplicación del estímulo previsto en el presente artículo transitorio será válida durante todo el ejercicio fiscal del año 2018, independientemente del cobro de las sanciones respectivas derivadas del tiempo en el que se realice el trámite correspondiente, de conformidad con lo previsto en el artículo 49 de la Ley de Hacienda del Estado de Sinaloa.
+QUINTO. Durante el Ejercicio Fiscal del año 2018, del monto recaudado por concepto de revalidación anual de tarjeta de circulación y calcomanía de refrendo, serán destinados $160,000,000.00 (Ciento sesenta millones de pesos 00/100 M.N.) a la partida presupuestal correspondiente al seguro popular y el monto restante a la correspondiente a las pensiones del sector educativo.

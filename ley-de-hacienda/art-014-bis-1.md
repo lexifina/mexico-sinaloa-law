@@ -1,3 +1,1 @@
-(ADICIONADO, P.O. 4 DE MAYO DE 2016)
-ART. 14 BIS-1.- En los casos en que los contribuyentes obligados a realizar el pago en el Estado demuestren haber cubierto el impuesto sobre tenencia o uso de vehículos correspondiente al año de calendario de que se trate en otra entidad federativa, cuyo objeto grave la tenencia o uso de vehículos, o que en dicha entidad se encontraba exento del pago del impuesto, podrá solicitar se acredite el importe cubierto o la exención del plazo transcurrido en el año calendario, debiendo pagar, en su caso, la parte proporcional que quede pendiente una vez realizado el cálculo correspondiente al de esta entidad, aplicándose el factor correspondiente contenido en la tabla del artículo 15-B de esta Ley.
-No será sujeto de devolución o compensación, el importe cubierto en exceso en otra entidad federativa.
+ART. 14 BIS-1.- (DEROGADO, P.O. 20 DE DICIEMBRE DE 2017)

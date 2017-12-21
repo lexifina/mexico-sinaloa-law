@@ -1,2 +1,1 @@
-(ADICIONADO [N. DE E. REPUBLICADO], P.O. 26 DE DICIEMBRE DE 2011)
-ART. 15-I.- Las autoridades competentes, para expedir los certificados de aeronavegabilidad y los certificados de matrícula para las aeronaves, se abstendrán de expedirlos cuando el tenedor o usuario del vehículo no compruebe el pago del impuesto a que se refiere este apartado, a excepción de los casos en que se encuentre liberado de ese pago. De no comprobarse que se ha cumplido con la obligación de pago, dichas oficinas lo harán del conocimiento de las autoridades fiscales correspondientes.
+ART. 15-I.- (DEROGADO, P.O. 20 DE DICIEMBRE DE 2017)
