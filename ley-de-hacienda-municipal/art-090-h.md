@@ -1,0 +1,7 @@
+(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 22 DE DICIEMBRE DE 2017)
+CAPÍTULO XVI
+DERECHOS POR INSPECCIÓN Y VIGILANCIA DE OBRA PÚBLICA DIRECTA
+(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2017)
+ARTICULO 90-H. Por el servicio de verificación, inspección, fiscalización y control que las leyes de la materia encomienden a los organos internos de control de los municipios, y al Congreso del Estado, los contratistas con quienes se celebren contratos de obra pública y de servicios relacionados con la misma, o con sus organismos públicos descentralizados, pagarán un derecho equivalente al 3% sobre el importe de cada una de las estimaciones de trabajo.
+La oficina pagadora de los ayuntamientos o de los organismos públicos descentralizados, al hacer el pago de las estimaciones de obra, retendrán el importe del derecho a que se refiere el párrafo anterior y lo deberá enterar a más tardar a los veinte días del mes siguiente al que se hayan efectuado las retenciones correspondientes.
+Del monto total de las retenciones efectuadas se destinará una tercera parte a los organos internos de control de los municipios, y las dos teceras (sic) partes restantes al Congreso del Estado, cuyo porcentaje será destinado a la Auditoría Superior del Estado, para el financiamiento de la prestación de los servicios a que refiere este artículo, en los términos de los convenios de colaboración administrativa que celebren para tal efecto.
