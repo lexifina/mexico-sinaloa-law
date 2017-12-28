@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2017)
+Artículo 24 F. Si el proyecto es dictaminado positivamente la Secretaría incluirá el proyecto en el Registro Público de Propuestas de Colaboración Público Privada, ya sea que este forme parte de un registro general existente o sea un registro único. En caso contrario, la Secretaria lo comunicará formalmente a la dependencia, entidad y/o Municipio solicitantes, señalando los motivos de la negativa. En ningún caso operará la negativa ficta.

@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2017)
+Artículo 24 E. El ente público que pretenda realizar un proyecto bajo el esquema de Colaboración Público Privada deberá enviar a la Secretaría, para su dictaminación, el proyecto con todos los requisitos a que se refieren los artículos 24 D, 27 y 29 de esta Ley, sin perjuicio de los demás requisitos que establezcan las leyes aplicables. La Secretaría está facultada para solicitar al ente público los requisitos que considere necesarios para la dictaminación del proyecto.
+La Secretaría podrá realizar las modificaciones y las correcciones que considere necesario al análisis que el ente público responsable haga, respecto de los requisitos del artículo 24 D de esta Ley.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2017)
+Artículo 24 H. Los Proyectos de inversión pública que hayan iniciado su registro e incluso aquellos que hayan obtenido dictaminación positiva, en los que el titular o titulares de las dependencias, entidades y/o Municipios responsables del proyecto de inversión pública consideren la conveniencia de cambiar el esquema y llevarlos a cabo mediante el esquema de Colaboración Público Privada, deberán presentar a la Secretaría por oficio y mediante el sistema los requisitos a que hacen referencia los artículos 24 D, 27 y 29 de esta Ley.

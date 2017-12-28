@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2017)
+Artículo 24 N. La ejecución de un proyecto de inversión pública productiva mediante el esquema de Colaboraciones Público Privada, aun cuando estén priorizados y dictaminados, dependerá de la aprobación del Congreso del Estado, en términos de las Obligaciones que genere dicho proyecto, de conformidad con lo establecido por la Ley de Disciplina Financiera de las Entidades Federativas y los Municipios.

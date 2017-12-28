@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2017)
+Artículo 24 A. Los proyectos de Colaboración Público Privada deberán estar orientados a resultados y deberán crear o generar valor público en beneficio del Estado. La planeación, programación y presupuestación de los proyectos de colaboración público privada, se realizarán de conformidad con lo establecido en la presente Ley, y por lo dispuesto en la Ley de Planeación, la Ley de Presupuesto y Responsabilidad Hacendaria, ambas del Estado de Sinaloa y, por la Ley de Disciplina Financiera de los Entidades Federativas y los Municipios.

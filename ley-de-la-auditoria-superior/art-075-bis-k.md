@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2017)
+Artículo 75 Bis K. La Auditoría Superior del Estado revisará que el mecanismo jurídico empleado como fuente de pago de las obligaciones no genere gastos administrativos superiores a los costos promedio en el mercado; asimismo que la contratación de los empréstitos se dé bajo las mejores condiciones de mercado, así como que se hayan destinado los recursos a una inversión pública productiva, reestructura o refinanciamiento.

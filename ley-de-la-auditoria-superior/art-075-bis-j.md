@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2017)
+Artículo 75 Bis J. La Auditoría Superior del Estado verificará que se hayan cumplido los principios, criterios y condiciones para asumir la contratación de deuda pública; incluyendo los gastos que se deriven del proceso, que los pasivos se formalizaron conforme a las bases que estableció la Legislatura en los Decretos correspondientes y que se contrataron los financiamientos y otras obligaciones por los conceptos y hasta por el monto y límite aprobados por la Legislatura.

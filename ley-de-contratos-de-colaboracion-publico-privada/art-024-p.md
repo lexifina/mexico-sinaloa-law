@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2017)
+Artículo 24 P. El Congreso del Estado, por el voto de las dos terceras partes de sus miembros presentes, podrá autorizar la afectación de tas (sic) participaciones que correspondan al Estado o a los Municipios como garantía o fuente de pago o en ambas modalidades de las obligaciones derivadas de proyectos de Colaboración Público Privada en los términos previstos en el artículo 9 de la Ley de Coordinación Fiscal y en la Ley de Disciplina Financiera de las Entidades Federativas y los Municipios.

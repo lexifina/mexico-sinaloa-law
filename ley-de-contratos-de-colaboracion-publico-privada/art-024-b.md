@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2017)
+Artículo 24 B. En los proyectos de inversión pública productiva que se pretendan contratar bajo un esquema de Colaboración Público Privada, la dependencia, entidad y/o Municipio interesado en el proyecto, deberá incluir en el análisis a que hace referencia el artículo 27 de esta Ley, la vinculación del proyecto con el o los ejes, temas, objetivos y estrategias del Plan Estatal de Desarrollo, a fin de asegurar la congruencia del proyecto.

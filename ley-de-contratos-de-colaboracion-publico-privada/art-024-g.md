@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2017)
+Artículo 24 G. Los proyectos de Colaboración Público Privada incluidos en el registro general de proyectos o en el Registro Público de Propuestas de Colaboración Público Privada que hayan sido dictaminados positivamente, a más tardar el último día hábil del mes de agosto del ejercicio fiscal en curso formarán parte del plan plurianual y/o anual de los Proyectos de inversión pública, cumpliendo con todos los requisitos para ser incluidos en el Proyecto de Presupuesto de Egresos.
+Aquellos proyectos de inversión pública y sus componentes que sean registrados en el Registro de proyectos después de la fecha señalada en el párrafo anterior, podrán ser considerados en el Presupuesto de Egresos del siguiente ejercicio fiscal.

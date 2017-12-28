@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE DICIEMBRE DE 2017)
+Artículo 24 Ñ. La ejecución de un proyecto de inversión pública productiva mediante el esquema de Colaboraciones Público Privada no debe afectar el balance presupuestario sostenible. Las excepciones se sujetarán a lo establecido en esta Ley, y en la Ley de Disciplina Financiera de la Entidades Federativas y los Municipios, y en la forma que se establezca en las leyes y reglamentos en materia de presupuesto del Estado.
