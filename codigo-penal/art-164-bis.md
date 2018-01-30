@@ -1,0 +1,5 @@
+(NOTA: EL 3 DE OCTUBRE DE 2019, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN LOS APARTADOS VI Y VII, ASÍ COMO EN EL RESOLUTIVO SEGUNDO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 34/2018, DECLARÓ LA INVALIDEZ DE ESTE ARTÍCULO, LA CUAL SURTIÓ EFECTOS EL 4 DE OCTUBRE DE 2019, DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www2.scjn.gob.mx/).
+(ADICIONADO, P.O. 29 DE ENERO DE 2018)
+ARTICULO 164 BIS.- Al particular que ilegítimamente prive a otro de su libertad personal, con el propósito de realizar un acto sexual o para satisfacer un acto erótico, se le impondrá de dos a ocho años de prisión, y de cien a trescientos días multa.
+La pena prevista en el párrafo anterior, se aumentará hasta en una mitad más, cuando en la privación de la libertad ocurriere algunas de las circunstancias, previstas en al artículo anterior
+Este delito se perseguirá por querella de la parte ofendida.
