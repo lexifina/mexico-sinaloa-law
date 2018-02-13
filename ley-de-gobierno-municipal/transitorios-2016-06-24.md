@@ -1,5 +1,0 @@
-P.O. 24 DE JUNIO DE 2016.
-[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 562 QUE REFORMA, ADICIONA Y DEROGA DIVERSAS DISPOSICIONES DE LA LEY DE GESTIÓN EMPRESARIAL Y REFORMA REGULATORIA, LEY DE FOMENTO A LA INVERSIÓN PARA EL DESARROLLO ECONÓMICO, LEY DE HACIENDA MUNICIPAL, LEY DE CATASTRO, LEY DE AGUA POTABLE Y ALCANTARILLADO, LEY DE PROTECCIÓN CIVIL Y LEY DE GOBIERNO MUNICIPAL, TODAS DEL ESTADO DE SINALOA".]
-PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
-SEGUNDO. Se derogan todas aquellas disposiciones que contravengan el presente Decreto.
-TERCERO. En un plazo de noventa días se deberán realizar las adecuaciones correspondientes a los Reglamentos de la Ley de Hacienda Municipal, Ley de Catastro, Ley de Agua Potable y Alcantarillado, Ley de Protección Civil, y Ley de Gobierno Municipal, todas del Estado, respectivamente, a efecto de establecer el procedimiento para llevar a cabo las solicitudes, dictaminaciones, pagos y emisión de documentos o constancias qua se generen por medios electrónicos.

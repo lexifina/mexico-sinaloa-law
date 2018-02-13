@@ -1,3 +1,0 @@
-(ADICIONADO, P.O. 26 DE JUNIO DE 2017)
-Artículo 67 Bis B. El titular del órgano interno de control será sujeto de responsabilidad en términos de la Ley General de Responsabilidades Administrativas y la Ley de Responsabilidades Administrativas del Estado; y podrá ser sancionado de conformidad con el procedimiento previsto en la normatividad aplicable.
-Tratándose de los demás servidores públicos adscritos al órgano interno de control serán sancionados por su titular o el servidor público en quien delegue la facultad, en términos de la Ley General de Responsabilidades Administrativas y la Ley de Responsabilidades Administrativas del Estado.

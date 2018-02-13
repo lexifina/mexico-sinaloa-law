@@ -1,0 +1,4 @@
+P.O. 12 DE FEBRERO DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 379 DEL H. CONGRESO DEL ESTADO.- SE REFORMA EL ARTÍCULO 179, PÁRRAFO PRIMERO; 182, PÁRRAFO PRIMERO; 183, 184, PÁRRAFOS PRIMERO Y SEGUNDO; Y 241 BIS, PÁRRAFO SEGUNDO; 241 BIS C, FRACCIONES I, II, IV Y V; Y SE ADICIONA LA FRACCIÓN VI AL ARTÍCULO 241 BIS C DEL CÓDIGO PENAL PARA EL ESTADO DE SINALOA".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
