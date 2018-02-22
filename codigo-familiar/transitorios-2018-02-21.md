@@ -1,0 +1,5 @@
+P.O. 21 DE FEBRERO DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 378 DEL H. CONGRESO DEL ESTADO.- MEDIANTE EL CUAL SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE ACCESO DE LAS MUJERES A UNA VIDA LIBRE DE VIOLENCIA Y DEL CÓDIGO FAMILIAR; AMBAS DEL ESTADO DE SINALOA".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+SEGUNDO. Para efecto de materializar la coadyuvancia que se señala en el artículo 38, fracción II de la Ley de Acceso de las Mujeres a una Vida Libre de Violencia para el Estado de Sinaloa, el Instituto Sinaloense de las Mujeres, la Fiscalía General del Estado y el Poder Judicial del Estado deberán celebrar convenio de coordinación dentro de los treinta días siguientes al inicio de vigencia del presente Decreto.
+TERCERO. Dentro del término de ciento veinte días naturales posteriores al inicio del Presente Decreto, la Fiscalía General del Estado en coordinación con el Poder Judicial deberán emitir el Protocolo de Actuación para la implementación de órdenes de protección para mujeres en situación de violencia en el Estado de Sinaloa.
