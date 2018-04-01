@@ -4,8 +4,12 @@ El escrito en donde se soliciten las medidas cautelares señaladas, deberá señ
 a). Nombre y domicilio para oír notificaciones, así como su dirección de correo electrónico, cuando opte porque el juicio se substancie en línea a través del Sistema de Justicia en Línea;
 b). Resolución que se pretenda impugnar y fecha de notificación de la misma;
 c). Los hechos que se pretenden resguardar con la medida cautelar;
-d). Los motivos por los cuales solicita la medida cautelar; y,
-e). Una copia del escrito mencionado para cada una de las partes del juicio, para correrles traslado.
+(REFORMADO, P.O. 22 DE DICIEMBRE DE 2017)
+d). Los motivos por los cuales solicita la medida cautelar;
+(REFORMADO, P.O. 22 DE DICIEMBRE DE 2017)
+e). Una copia del escrito mencionado para cada una de las partes del juicio, para correrles traslado; y,
+(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2017)
+f). En su caso, la garantía que se hubiere constituido ante la autoridad demandada.
 La solicitud previa de la medida cautelar, no interrumpirá el término para la interposición de la demanda, su otorgamiento surtirá efectos hasta por quince días, los que se prorrogarán una vez presentada esta. De no cumplir con los citados requisitos, se tendrá por no solicitada.
 Iniciado el juicio, el Magistrado Instructor podrá de oficio ordenar una medida cautelar, cuando considere que los daños que puedan causarse sean inminentes o graves.
 En los casos en que el otorgamiento de la medida pueda causar una afectación patrimonial, el Magistrado Instructor exigirá garantía que deberá presentarse dentro de un plazo de tres días, para responder de los daños y perjuicios que se pudieran ocasionar con ella. Si no es cuantificable la indemnización respectiva, la Sala Regional con los elementos a su alcance fijará el importe de la garantía.

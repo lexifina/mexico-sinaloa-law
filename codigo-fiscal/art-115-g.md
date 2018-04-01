@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2017)
+ARTICULO 115-G.- Se sancionará con prisión de uno a cinco años al servidor público que amenace de cualquier modo a un contribuyente o a sus representantes o dependientes, con formular por sí o por medio de la dependencia de su adscripción, una querella ante el Ministerio Público para que se ejercite acción penal por la posible comisión de delitos fiscales.

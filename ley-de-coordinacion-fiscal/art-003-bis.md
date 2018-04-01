@@ -1,4 +1,5 @@
-(ADICIONADO, P.O. 26 DE DICIEMBRE DE 2011)
-ARTICULO 3 BIS.- Con el propósito de fortalecer las Haciendas Públicas Municipales, incentivar la recaudación del Impuesto Predial y las cuotas por suministro de agua por parte de los Municipios, se constituye el Fondo Estatal de Participaciones con los recursos propios del Gobierno del Estado, que a continuación se indican:
-I. El 20% del monto de los ingresos totales que recaude el Estado por concepto del Impuesto sobre Tenencia o Uso de Vehículos.
-II. El 20% del monto de la recaudación Estatal que se obtenga por concepto del Impuesto sobre adquisición de vehículos de motor usado.
+(REFORMADO, P.O. 22 DE DICIEMBRE DE 2017)
+ARTICULO 3 BIS.- Con el propósito de incentivar la recaudación de (sic) Impuesto Predial y las cuotas por suministro de agua potable y alcantarillado, por parte de los Municipios, se constituye el Fondo Estatal de Participaciones con los recursos propios del Gobierno del Estado que registren un flujo de efectivo, que a continuación se indican:
+I. El 20% del monto de recaudación que se obtenga por concepto del Impuesto Sobre Adquisición de Vehículos de Motor Usado.
+En materia del Impuesto Predial se destinará el 50% de este fondo para las siguientes acciones: depurar y actualizar el padrón catastral y el padrón de contribuyentes, las labores de cobranza mediante el Proceso Administrativo de Ejecución, así como para adquisición de equipamiento administrativo y técnico.
+En relación a la recaudación de cuotas por suministro de agua potable y alcantarillado se aplicará el 50% restante de este fondo para las siguientes acciones: actualización de software, depuración del padrón de usuarios y de la cartera vencida, así como para el mejoramiento físico de los organismos operadores.

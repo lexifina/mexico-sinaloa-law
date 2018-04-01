@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY DE PLANEACIÓN PARA EL ESTADO DE SINALOA
 Ley publicada en el Periódico Oficial "El Estado de Sinaloa", el lunes 2 de noviembre de 1987.
 El Ciudadano Licenciado FRANCISCO LABASTIDA OCHOA, Gobernador Constitucional del Estado Libre y Soberano de Sinaloa, a sus habitantes hace saber:

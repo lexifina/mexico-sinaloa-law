@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2017)
+ARTICULO 115-F.- Se impondrá prisión de diez meses a cinco años, a los servidores públicos que ordenen o practiquen visitas domiciliarias o embargos sin mandamiento escrito de la autoridad fiscal competente. Las mismas penas se impondrán a los servidores públicos que realicen la verificación física de mercancías en transporte en lugar distinto a los recintos fiscales.
