@@ -1,4 +1,4 @@
-LEY SOBRE EL SISTEMA ESTATAL DE ASISTENCIA SOCIAL
+LEY SOBRE EL SISTEMA ESTATAL DE ASISTENCIA SOCIAL DEL ESTADO DE SINALOA
 Ley publicada en el Periódico Oficial del Estado de Sinaloa, el viernes 26 de junio de 1987.
 EL CIUDADANO LICENCIADO FRANCISCO LABASTIDA OCHOA, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE SINALOA, a sus habitantes hace saber:
 Que por el H. Congreso del mismo, se le ha comunicado lo siguiente:
