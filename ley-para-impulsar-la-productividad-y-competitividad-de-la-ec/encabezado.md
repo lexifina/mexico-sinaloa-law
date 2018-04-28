@@ -1,0 +1,7 @@
+LEY PARA IMPULSAR LA PRODUCTIVIDAD Y COMPETITIVIDAD DE LA ECONOMÍA DEL ESTADO DE SINALOA
+Ley publicada en el Periódico Oficial del Estado de Sinaloa, el viernes 27 de abril de 2018.
+El Ciudadano LIC. QUIRINO ORDAZ COPPEL, Gobernador Constitucional del Estado Libre y Soberano de Sinaloa, a sus habitantes hace saber:
+Que por el H. Congreso del mismo se le ha comunicado lo siguiente:
+El H. Congreso del Estado Libre y Soberano de Sinaloa, representado por su Sexagésima Segunda Legislatura, ha tenido a bien expedir el siguiente,
+DECRETO NÚMERO: 386
+LEY PARA IMPULSAR LA PRODUCTIVIDAD Y COMPETITIVIDAD DE LA ECONOMÍA DEL ESTADO DE SINALOA
