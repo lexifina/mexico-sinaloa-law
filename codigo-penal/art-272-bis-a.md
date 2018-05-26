@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 25 DE MAYO DE 2018)
+ARTICULO 272 Bis A.- Al que por cualquier medio de comunicación y sin existir razón que lo justifique, envíe mensajes o realice llamadas de alerta o emergencia a un sistema de respuesta de llamada telefónica, de emergencia o su equivalente con el objeto de inducir al error y movilizar a los sistemas de emergencias y urgencias o sus equivalentes, se le impondrá de tres a seis meses de prisión y, de dieciocho a treinta y seis días multa.
+Si con la llamada o mensaje se produce un daño, se altera el orden público o se distrae el estado de fuerza de la autoridad, se impondrán de uno a dos años (sic) prisión y, de setenta y dos a doscientos días multa.
+En caso de reincidencia, se impondrá de dos a cuatro años de prisión y de doscientos cincuenta a cuatrocientos días multa.
+El uso indebido de los servicios de emergencia para movilizar cuerpos de emergencia, se perseguirá a petición del representante legal de la institución cuya movilización se pretenda realizar o se haya realizado como consecuencia del aviso de emergencia.
+Cuando las llamadas o mensajes falsos las realicen menores de edad, se sancionará de acuerdo a lo establecido en la Ley de los Derechos de Niñas, Niños y Adolescentes del Estado de Sinaloa, y en la Ley Nacional del Sistema Integral de Justicia Penal para Adolescentes.
