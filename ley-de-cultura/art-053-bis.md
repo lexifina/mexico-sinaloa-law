@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 30 DE MAYO DE 2018)
+Artículo 53 Bis. Con respecto a los bienes muebles e inmuebles declarados bajo el régimen especial de protección, los autores de los mismos tendrán derecho de preferencia para realizar las labores de protección, conservación, recuperación, restauración y difusión a que se refiere el artículo 50 de esta ley, así como las que señala la Ley en materia de ordenamiento territorial y desarrollo urbano.
+En caso de encontrarse imposibilitados dichos autores para realizar dichas acciones, se les deberá tomar en cuenta para proporcionar asesoría para tales efectos.
+En términos de la Ley en materia de ordenamiento territorial y desarrollo urbano, las autoridades estatales y municipales en las actividades anteriormente descritas, promoverán la participación de institutos, juntas, comités, colegios, patronatos u organismos que tengan como fin la defensa, protección, acrecentamiento y recuperación del patrimonio cultural urbano del Estado.
