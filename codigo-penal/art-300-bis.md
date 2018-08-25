@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 24 DE AGOSTO DE 2018)
+ARTICULO 300 Bis.- Se impondrá de uno a ocho años de prisión y de treinta a ciento ochenta días de multa al servidor público que autorice indebidamente o permita la ocupación irregular de áreas y predios en los Centros de Población, el Asentamiento Humano o construcción en polígonos de protección, salvaguarda y amortiguamiento en torno a la infraestructura o equipamientos de seguridad estatal o de protección en derechos de vía, o que no acate el área urbanizable.
