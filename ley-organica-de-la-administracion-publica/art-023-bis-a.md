@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE SEPTIEMBRE DE 2018)
+ARTICULO 23 Bis A.- Al frente de la Consejería Jurídica habrá un Consejero Jurídico que dependerá directamente del Ejecutivo, y será nombrado y removido libremente por éste, quien para el despacho de los asuntos de su competencia, se auxiliará por los Directores Generales, Jefes de Departamento y por los demás funcionarios que establezca el Reglamento Interior respectivo y otras disposiciones legales.
