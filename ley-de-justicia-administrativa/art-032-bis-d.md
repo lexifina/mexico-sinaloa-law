@@ -1,3 +1,1 @@
-(ADICIONADO, P.O. 26 DE JUNIO DE 2017)
-ARTICULO 32 BIS-D. El titular del órgano interno de control será sujeto de responsabilidad en términos de la Ley General de Responsabilidades Administrativas y la Ley de Responsabilidades Administrativas del Estado, y podrá ser sancionado de conformidad con el procedimiento previsto en la normatividad aplicable.
-Tratándose de los demás servidores públicos adscritos al Órgano Interno de Control del Tribunal serán sancionados por su titular o el servidor público en quien delegue la facultad, en términos de la Ley General de Responsabilidades Administrativas y la Ley de Responsabilidades Administrativas del Estado.
+ARTICULO 32 BIS-D. (DEROGADO, P.O. 1 DE OCTUBRE DE 2018)
