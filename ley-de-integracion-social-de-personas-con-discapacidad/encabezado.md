@@ -1,3 +1,4 @@
+[N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY DE INTEGRACIÓN SOCIAL DE PERSONAS CON DISCAPACIDAD DEL ESTADO DE SINALOA
 Ley publicada en la Segunda Sección del Periódico Oficial "El Estado de Sinaloa", el miércoles 6 de septiembre del 2000.
 EL CIUDADANO JUAN S. MILLAN LIZARRAGA, Gobernador Constitucional del Estado Libre y Soberano de Sinaloa, a sus habitantes hace saber:
