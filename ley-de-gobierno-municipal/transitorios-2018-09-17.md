@@ -1,0 +1,3 @@
+P.O. 17 DE SEPTIEMBRE DE 2018.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO 830 DEL H. CONGRESO DEL ESTADO.- MEDIANTE EL CUAL SE REFORMA EL PRIMER PÁRRAFO DE LA FRACCIÓN III DEL ARTÍCULO 38, DE LA LEY DE GOBIERNO MUNICIPAL DEL ESTADO DE SINALOA".]
+ÚNICO. El presente decreto entrará en vigor el día siguiente al de su publicación en el Periódico Oficial "El Estado de Sinaloa".
