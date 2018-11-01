@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 12 DE FEBRERO DE 2018)
+Artículo 39 Bis. El Síndico Procurador tendrá facultades de revisión, supervisión y coordinación de las funciones del órgano interno de control del Ayuntamiento. El órgano interno de control se encargará de revisar el ingreso, egreso, manejo, custodia y aplicación de los recursos públicos, así como investigar, sustanciar y resolver los expedientes en materia de responsabilidades administrativas en los términos del artículo 67 Bis de la presente Ley.
+El Síndico Procurador propondrá el nombramiento del Titular del órgano interno de control al Cabildo y revisará su informe anual de resultados, así como su programa de trabajo.
