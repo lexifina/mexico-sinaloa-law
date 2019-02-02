@@ -1,0 +1,1 @@
+Artículo Tercero. Los tabuladores que a la entrada en vigor del presente Decreto, no se ajusten a lo establecido en la misma, deberán ser adecuados, en un término no mayor a 180 días naturales de su aplicación y publicados en el Periódico Oficial "El Estado de Sinaloa".

@@ -1,0 +1,1 @@
+Artículo Segundo. Se abroga la Ley de Gasto Eficiente y Remuneraciones de los Servidores Públicos del Estado de Sinaloa publicada en el Periódico Oficial "El Estado de Sinaloa" número 107, de fecha 7 de septiembre de 2011.
