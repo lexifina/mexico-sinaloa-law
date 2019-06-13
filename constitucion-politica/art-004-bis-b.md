@@ -28,3 +28,5 @@ X. Todas las personas tienen derecho al libre acceso al internet y a las tecnolo
 El Estado y los Municipios deberán garantizar el acceso a internet gratuito inalámbrico de banda ancha, en los edificios e instalaciones de los diversos Poderes del Estado y de las dependencias y entidades de su administración, así como en los lugares públicos que para el efecto se determinen.
 (ADICIONADA, P.O. 15 DE MARZO DE 2017)
 XI. Toda familia tiene derecho a disfrutar de vivienda digna y decorosa. La Ley establecerá los instrumentos y apoyos necesarios a fin de alcanzar tal objetivo.
+(ADICIONADA, P.O. 12 DE JUNIO DE 2019)
+XII. Toda persona tiene derecho a que se respete su integridad personal. El Estado y los Municipios establecerán las medidas necesarias para protegerlas contra cualquier acto de desaparición forzada y desaparición cometida por particulares; y contra la tortura y otros tratos o penas crueles, inhumanos o degradantes.
