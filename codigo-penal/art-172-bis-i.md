@@ -1,2 +1,1 @@
-(ADICIONADO, P.O. 9 DE AGOSTO DE 2013)
-ARTICULO 172 Bis I.- El Estado y los Municipios responderán solidariamente ante la víctima u ofendido del delito por la comisión del mismo por parte de sus servidores públicos. Dicha responsabilidad incluirá el pago de los daños y perjuicios, para lo cual, el Ministerio Público estará obligado a solicitar al Juez dicha reparación y éste a resolver en la sentencia fijando la misma en cantidad líquida en beneficio de la víctima o del ofendido.
+ARTICULO 172 Bis I.- (DEROGADO, P.O. 22 DE JULIO DE 2019)

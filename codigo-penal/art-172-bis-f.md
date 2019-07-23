@@ -1,2 +1,1 @@
-(ADICIONADO, P.O. 9 DE AGOSTO DE 2013)
-ARTICULO 172 Bis F.- Los servidores públicos que teniendo a su cargo la investigación del delito de desaparición forzada de personas o sus auxiliares, la obstruyan o eviten hacerla, se le aplicará pena de cuatro a siete años de prisión y de doscientos a cuatrocientos días multa, además de la inhabilitación de cinco a diez años para el ejercicio de cargos públicos.
+ARTICULO 172 Bis F.- (DEROGADO, P.O. 22 DE JULIO DE 2019)

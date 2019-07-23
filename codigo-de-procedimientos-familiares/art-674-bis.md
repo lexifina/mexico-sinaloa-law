@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 22 DE JULIO DE 2019)
+Artículo 674 Bis. Los familiares, otras personas legitimadas por la Ley y el Ministerio Público podrán solicitar al órgano jurisdiccional en materia familiar que corresponda, según la competencia, se emita una Declaración Especial de Ausencia por Desaparición Forzada, en términos de lo dispuesto en este Código y demás leyes aplicables.
+El procedimiento de Declaración Especial de Ausencia por Desaparición Forzada, podrá pedirse que se inicie por quien tenga derecho a ello y será estrictamente voluntario. Las autoridades en contacto con los familiares deberán informar del procedimiento y efectos de la declaración a estos.
