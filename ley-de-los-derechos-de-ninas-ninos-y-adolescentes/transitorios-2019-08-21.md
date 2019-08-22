@@ -1,0 +1,3 @@
+P.O. 21 DE AGOSTO DE 2019.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO 296 DEL H. CONGRESO DEL ESTADO.- QUE REFORMA LA FRACCIÓN VIII DEL ARTÍCULO 83 DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE SINALOA".]
+ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
