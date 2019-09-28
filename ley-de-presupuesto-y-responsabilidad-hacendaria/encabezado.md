@@ -1,5 +1,4 @@
 LEY DE PRESUPUESTO Y RESPONSABILIDAD HACENDARIA DEL ESTADO DE SINALOA
-TEXTO VIGENTE.
 Ley publicada en la Octava Sección del Periódico Oficial del Estado de Sinaloa, el viernes 22 de diciembre de 2017.
 El Ciudadano LIC. QUIRINO ORDAZ COPPEL, Gobernador Constitucional del Estado Libre y Soberano de Sinaloa, a sus habitantes hace saber:
 Que por el H. Congreso del mismo se le ha comunicado lo siguiente:
