@@ -1,0 +1,7 @@
+LEY PARA LA DOTACIÓN GRATUITA DE UNIFORMES, CALZADO DEPORTIVO Y ÚTILES ESCOLARES DEL ESTADO DE SINALOA
+Ley publicada al Número 118 del Periódico Oficial del Estado de Sinaloa, el viernes 27 de septiembre de 2019.
+El Ciudadano LIC. QUIRINO ORDAZ COPPEL, Gobernador Constitucional del Estado Libre y Soberano de Sinaloa, a sus habitantes hace saber:
+Que por el H. Congreso del mismo se le ha comunicado lo siguiente:
+El H. Congreso del Estado Libre y Soberano de Sinaloa, representado por su Sexagésima Tercera Legislatura; ha tenido a bien expedir el siguiente,
+DECRETO NÚMERO: 280
+POR EL QUE SE EXPIDE LA LEY PARA LA DOTACIÓN GRATUITA DE UNIFORMES, CALZADO DEPORTIVO Y ÚTILES ESCOLARES; Y SE REFORMAN DIVERSAS DISPOSICIONES DE LA LEY DE EDUCACIÓN, DE LA LEY DE PRESUPUESTO Y RESPONSABILIDAD HACENDARIA, Y DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES, TODAS DEL ESTADO DE SINALOA.
