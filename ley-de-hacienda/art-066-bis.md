@@ -1,5 +1,3 @@
-(DEROGADO PENÚLTIMO PÁRRAFO, P.O. 28 DE DICIEMBRE DE 2007)
-(DEROGADO ÚLTIMO PÁRRAFO, P.O. 28 DE DICIEMBRE DE 2007)
 (ADICIONADO, P.O. 28 DE DICIEMBRE DE 2007)
 ART. 66 bis.- El uso o aprovechamiento del derecho de vía, accesos, accesorios y otros servicios de las autopistas y carreteras estatales, estará sujeto a la siguiente:
 TARIFA

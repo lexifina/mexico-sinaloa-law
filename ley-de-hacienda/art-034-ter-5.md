@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 25 DE DICIEMBRE DE 2019)
+ART. 34 TER-5.- Los operadores de los establecimientos en los que se realicen los juegos con apuestas o en los que se instalen las máquinas de juegos, además de la obligación de recaudar y enterar el impuesto a que se refiere el artículo 34 TER-3, están obligados a expedir comprobantes por cada contraprestación que cobren, incluyendo la carga y recarga, que otorguen a quienes utilicen las máquinas de juegos, en la que conste expresamente y por separado el importe recaudado.

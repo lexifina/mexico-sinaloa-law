@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 25 DE DICIEMBRE DE 2019)
+ARTICULO 4 BIS 1.- Las participaciones a que se refiere el artículo 3-B de la Ley de Coordinación Fiscal, serán distribuidas de conformidad con los montos por Municipio y por Órgano que se reciba por parte de la Secretaría de Hacienda y Crédito Público y que ésta informe a la Secretaría de Administración y Finanzas del Gobierno del Estado de Sinaloa.
+Cuando la Secretaría de Hacienda y Crédito Público realice deducciones correspondientes a periodos anteriores, el Estado efectuará la deducción correspondiente al Municipio de que se trate, de ser insuficiente el ingreso del Municipio, el saldo se descontará de las ministraciones siguientes.
