@@ -19,7 +19,7 @@ DIPUTADA SECRETARIA
 C. RAMÓN LUCAS LIZÁRRAGA
 DIPUTADO SECRETARIO
 Por lo tanto mando se imprima, publique, circule y se le dé el debido cumplimiento.
-Es dado en el Palacio del Poder Ejecutivo del Estado en la ciudad de Culiacán Rosales, Sinaloa, a los tres días del mes de mayo del año dos mil dieciséis.
+Es dado en el Palacio del Poder Ejecutivo del Estado en la ciudad de Culiacán Rosales, Sinaloa, a los tres días del mes de mayo del dos mil dieciséis.
 El Gobernador Constitucional del Estado
 LIC. MARIO LÓPEZ VALDEZ
 El Secretario General de Gobierno
