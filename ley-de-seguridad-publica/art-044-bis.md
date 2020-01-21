@@ -1,2 +1,4 @@
-(ADICIONADO, P.O. 30 DE OCTUBRE DE 2015)
-Artículo 44 Bis.- El Gobierno del Estado y los Municipios podrán reconocer la antigüedad laboral de los elementos de los cuerpos policiales, que hayan laborado en uno u otro orden de gobierno, previa celebración de convenios que establezcan aportaciones solidarias entre ambas partes.
+(REFORMADO, P.O. 20 DE ENERO DE 2020)
+Artículo 44 Bis.- El Gobierno del Estado y los Municipios reconocerán la suma de los años laborados en las instituciones de seguridad pública de los elementos que hayan prestado su servicio en cualquiera de los dos órdenes de gobierno, estatal o municipal, para efecto de otorgar la pensión por retiro o jubilación que por ley corresponda.
+Mediante la celebración de convenio establecerán los porcentajes de aportaciones solidarias entre ambas partes, de acuerdo al tiempo que los elementos hayan laborado en cada institución, de conformidad con lo establecido en esta Ley.
+La institución de seguridad pública estatal o municipal estará obligada a reconocer la antigüedad y otorgar la pensión o jubilación por los años de servicio prestados, a los elementos que cumplan con el tiempo laboral, establecidos en esta Ley.
