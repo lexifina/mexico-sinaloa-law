@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE MARZO DE 2020)
+Artículo 93 Bis 3. En caso de incumplir con la compra, instalación y mantenimiento de los desfibriladores automáticos externos, así como por la capacitación del personal para su uso, por parte de los responsables a que hace referencia el artículo 93 Bis 2 de esta Ley, la Secretaría de Salud girarán (sic) un apercibimiento para que un plazo no mayor a diez días hábiles, contados a partir de su notificación cumplan con la obligación; en caso de omisión se procederá a la clausura del inmueble respectivo.
