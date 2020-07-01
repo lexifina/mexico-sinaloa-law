@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 1 DE JULIO DE 2020)
+Artículo 303 Bis. En cualquier tiempo, dentro y fuera de los procesos electorales, la Secretaría Ejecutiva del Instituto instruirá el procedimiento especial establecido en este capítulo, de oficio cuando se tenga conocimiento por cualquier medio o cuando se denuncie la comisión de conductas que constituyan casos de violencia política contra las mujeres en razón de género en los términos previstos en esta Ley o en los establecidos en la Ley de Acceso.
