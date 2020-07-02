@@ -22,8 +22,8 @@ Las resoluciones del organismo garante son vinculatorias, definitivas e inatacab
 La Comisión Estatal para el Acceso a la Información Pública se integrará por tres comisionados. Para su nombramiento, el Congreso del Estado, previa convocatoria y realización de una amplia consulta a la sociedad, con el voto de las dos terceras partes de los miembros presentes, nombrará al comisionado que deba cubrir la vacante, siguiendo el proceso establecido en la Ley. El nombramiento podrá ser objetado por el Gobernador del Estado dentro de un plazo de diez días hábiles posteriores a la designación. Si el titular del Poder Ejecutivo Estatal no objetara el nombramiento dentro de dicho plazo, la persona nombrada como Comisionado por el Congreso del Estado, ocupará el cargo.
 (ADICIONADO, P.O. 28 DE NOVIEMBRE DE 2014)
 En caso de que el Gobernador del Estado objetara el nombramiento, el Congreso del Estado nombrará una nueva propuesta, en los términos del párrafo inmediato anterior. Si este segundo nombramiento fuera objetado, el Congreso del Estado, en los términos del párrafo anterior, designará al comisionado que ocupará la vacante, sin posibilidad que este último nombramiento pueda ser objetado, en la inteligencia que dicha elección no podrá recaer en las designaciones previamente objetadas por el titular del Poder Ejecutivo.
-(ADICIONADO, P.O. 28 DE NOVIEMBRE DE 2014)
-En la conformación del organismo garante se procurará la equidad de género.
+(REFORMADO, P.O. 1 DE JULIO DE 2020)
+En la designación de comisionadas y comisionados, y de los titulares de la estructura interna del organismo garante, se observará la paridad de género.
 (ADICIONADO, P.O. 28 DE NOVIEMBRE DE 2014)
 Los comisionados durarán en su encargo siete años, sin posibilidad de reelección y deberán cumplir con los requisitos previstos en la Ley. No podrán tener otro empleo, cargo o comisión, con excepción de los no remunerados en instituciones docentes, científicas o de beneficencia, y sólo podrán ser removidos de su cargo en los términos del Título Sexto de esta Constitución y serán sujetos de juicio político.
 (ADICIONADO, P.O. 28 DE NOVIEMBRE DE 2014)

@@ -1,0 +1,6 @@
+P.O. 1 DE JULIO DE 2020.
+N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 452 DEL H. CONGRESO DEL ESTADO.- QUE REFORMA Y ADICIONA DIVERSOS ARTÍCULOS DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE SINALOA, EN MATERIA DE PARIDAD DE GÉNERO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+SEGUNDO. El Congreso del Estado, deberá armonizar y adecuar las leyes secundarias a lo dispuesto por este Decreto, dentro del plazo de 180 días naturales, contado a partir de la entrada en vigor del presente Decreto, procurando observar el principio de paridad de género en los términos del artículo 41 de la Constitución Política de los Estados Unidos Mexicanos.
+TERCERO. La observancia del principio de paridad de género para los cargos de elección popular, después de la entrada en vigor del presente Decreto, será aplicable a quienes tomen posesión de su encargo a partir del proceso electoral 2020-2021.
+Con relación a los organismos de la Administración Pública Estatal, Organismos Autónomos, Poder Judicial, así como a la Administración Pública en los Municipios, su integración y designación habrá de realizarse de manera progresiva a partir de las nuevas designaciones y nombramientos que correspondan, de conformidad con la Ley.
