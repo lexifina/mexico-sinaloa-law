@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 3 DE JULIO DE 2020)
+ARTICULO 133 BIS C.- Las Presidencias de las Comisiones Permanentes podrán convocar a reuniones públicas virtuales cuando se acredite la actualización de cualquiera de los supuestos a que hace referencia el artículo 133 BIS A, previo acuerdo de la Junta de Coordinación Política y la Mesa Directiva. Sobreviniendo causa de fuerza mayor durante los recesos del Congreso, el acuerdo correspondiente se emitirá por la Diputación Permanente.
