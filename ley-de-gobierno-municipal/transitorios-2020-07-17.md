@@ -1,0 +1,3 @@
+P.O. 17 DE JULIO DE 2020.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO: 482 QUE ADICIONA DIVERSAS DISPOSICIONES A LOS ARTÍCULOS 25 Y 44 DE LA LEY DE GOBIERNO MUNICIPAL DEL ESTADO DE SINALOA".]
+ÚNICO. El presente Decreto entrará en vigor el día de su publicación en el Periódico Oficial "El Estado de Sinaloa".
