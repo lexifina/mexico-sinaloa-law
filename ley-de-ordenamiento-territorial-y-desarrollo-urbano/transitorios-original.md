@@ -26,3 +26,4 @@ Secretario General de Gobierno
 Gonzalo Gómez Flores
 Secretaria de Desarrollo Sustentable
 Martha Cecilia Robles Montijo
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
