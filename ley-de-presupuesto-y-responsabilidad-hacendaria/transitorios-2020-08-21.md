@@ -1,0 +1,4 @@
+P.O. 21 DE AGOSTO DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 468 DEL H. CONGRESO DEL ESTADO.- QUE REFORMA Y ADICIONA EL CONTENIDO DEL ARTÍCULO 6 DE LA LEY DE PRESUPUESTO Y RESPONSABILIDAD HACENDARIA DEL ESTADO DE SINALOA".]
+Primero. El Presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+Segundo. Los Poderes del Estado y los Organismos Autónomos y, en lo que corresponda a las demás entidades cuando la legislación aplicable lo permita, deberán prever las acciones necesarias para los efectos de llevar a cabo el tránsito de la nómina presupuestal, así como el desarrollo del cumplimiento de las disposiciones fiscales que les correspondan para el mejor desempeño del manejo, administración y ejecución del gasto presupuestal que en el ámbito de sus competencias les corresponda y conforme a su naturaleza jurídica.
