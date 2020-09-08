@@ -37,5 +37,15 @@ A. Conciliaciones bancarias;
 B. Relaciones analíticas, auxiliares de mayor y diario de pólizas;
 C. Archivo de pólizas contables; y,
 D. Balanza de comprobación.
+(ADICIONADA, P.O. 7 DE SEPTIEMBRE DE 2020)
+VII. Informe físico financiero de inversión en obra pública, donde así proceda, el cual deberá contener como mínimo lo siguiente:
+a) Tipo de recursos: federal, estatal o municipal y programa;
+b) Nombre de la obra;
+c) Número de contrato;
+d) Contratista;
+e) Importe autorizado;
+f) Porcentaje de avance físico; y
+g) Porcentaje de avance financiero.
+El inciso e) deberá considerarse incluyendo el Impuesto al Valor Agregado.
 La información a que se refiere este artículo deberá ser presentada, de forma impresa y en medio electrónico con excepción de la prevista en el inciso C, de la fracción VI, la cual debe presentarse solo en medio electrónico.
 Lo anterior sin perjuicio de que la Auditoría Superior del Estado, pueda solicitar información adicional para el debido cumplimiento de sus atribuciones de fiscalización.

@@ -1,0 +1,4 @@
+P.O. 7 DE SEPTIEMBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 484 DEL H. CONGRESO DEL ESTADO.- QUE REFORMA, ADICIONA Y DEROGA DIVERSAS DISPOSICIONES DE LA LEY DE LA AUDITORÍA SUPERIOR DEL ESTADO DE SINALOA".]
+Primero. El Presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+Segundo. No obstante el artículo anterior, las disposiciones de este Decreto serán aplicables para que la Auditoría Superior del Estado realice la revisión, análisis, desarrollo y demás actuaciones conforme a sus atribuciones y competencias relacionadas con el Informe General y las Informes Individuales de los Poderes del Gobierno del Estado, de los Gobiernos Municipales, Organismos Autónomos, Organismos de la Administración Pública Estatal y Paraestatal, así como organismos paramunicipales, relacionadas a la Cuenta Pública del ejercicio fiscal de 2019.

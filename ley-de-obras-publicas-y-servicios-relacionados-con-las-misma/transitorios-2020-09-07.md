@@ -1,0 +1,8 @@
+P.O. 7 DE SEPTIEMBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 456 DEL H. CONGRESO DEL ESTADO.- QUE REFORMA, ADICIONA Y DEROGA DIVERSAS DISPOSICIONES DE LA LEY DE OBRAS PÚBLICAS Y SERVICIOS RELACIONADOS CON LAS MISMAS DEL ESTADO DE SINALOA".]
+Artículo Primero. El presente Decreto entrará en vigor el día siguiente a su publicación, en el Periódico Oficial "El Estado de Sinaloa".
+Artículo Segundo. El Poder Ejecutivo, a través de la Secretaría de Innovación incorporará, dentro de los sesenta días hábiles de haberse publicado el presente Decreto, el Estándar de Datos para la contratación abierta, para asegurar la disponibilidad de la información de manera estructurada y reutilizable, del ciclo completo de las contrataciones. De igual manera lo harán las demás instituciones en el ámbito de sus competencias.
+Artículo Tercero. Se derogan todas las disposiciones que se opongan al presente Decreto.
+Artículo Cuarto. Las instituciones deberán de adecuar su normativa interna, así como integrar sus comités de obra pública y servicios relacionados con las mismas en un plazo máximo de sesenta días hábiles a la entrada en vigor de este decreto.
+Artículo Quinto. Los órganos internos de control de las instituciones tendrán un plazo de noventa días para crear el padrón de testigos sociales en función de la cantidad de obras a ejecutarse.
+Artículo Sexto. Lo dispuesto en los artículos 71, fracción VII y 79, relativo al pago de los gastos por financiamiento que podrá cobrar el contratista a la contratante, entrará en vigor a partir del 1 de enero de 2021, una vez que se estipule la tasa de referencia por las prórrogas para el cobro de créditos fiscales en la Ley de Ingresos y Presupuesto de Egresos del Estado de Sinaloa.
