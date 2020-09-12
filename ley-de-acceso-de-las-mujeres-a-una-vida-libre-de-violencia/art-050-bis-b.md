@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE SEPTIEMBRE DE 2020)
+Artículo 50 Bis B. El Protocolo Alba tendrá como objetivo instrumentar y aplicar estrategias y acciones para realizar la búsqueda e investigación, para la localización de niñas y mujeres que hayan sido reportadas corno desaparecidas o no localizadas, de manera inmediata, exhaustiva, continua, especializada, con perspectiva de género, transversalidad y respeto a los derechos humanos, mediante la colaboración coordinada de las autoridades de los tres órdenes de gobierno y niveles de la estructura Institucional.

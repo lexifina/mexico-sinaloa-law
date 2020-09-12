@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE SEPTIEMBRE DE 2020)
+Artículo 50 Bis G. Las autoridades y órganos que se involucren, en el ámbito de sus respectivas competencias deberán contar y garantizar la disponibilidad inmediata de personal especializado y capacitado en materia de búsqueda de personas, asegurando los recursos económicos, logísticos, científicos o de cualquier otra índole que garantice el éxito de la búsqueda.

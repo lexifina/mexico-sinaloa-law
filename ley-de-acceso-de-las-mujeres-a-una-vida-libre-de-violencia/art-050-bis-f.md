@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE SEPTIEMBRE DE 2020)
+Artículo 50 Bis F. El Protocolo Alba se activa desde el momento que se tenga conocimiento, ya sea por denuncia, noticia o reporte sobre la desaparición o no localización de una niña o mujer; y se desactiva con la localización de la niña o mujer a la que se busca, ya sea con vida o sin vida, de conformidad con las consideraciones que incluya el Protocolo que emita la Fiscalía General del Estado para tal efecto.
