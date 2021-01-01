@@ -19,4 +19,5 @@ HOMBRESMUJERES
 2890100
 2995100
 30 ó más100 100
-En el caso de muerte de un jubilado o pensionado, su importe consistirá en el salario mínimo general vigente al ocurrir el deceso.
+(REFORMADO, P.O. 4 DE DICIEMBRE DE 2020)
+En el caso de muerte de un jubilado o pensionado, su importe consistirá en el 100% de la pensión que venía devengando al ocurrir el deceso.

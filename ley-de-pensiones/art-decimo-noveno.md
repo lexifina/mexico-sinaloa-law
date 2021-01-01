@@ -16,8 +16,8 @@ requeridaa cotización.
 9 o más30.0%
 Para los efectos del párrafo anterior, los trabajadores y empleadores, conjuntamente, notificarán al Instituto que el primero ya ha cumplido los requisitos para recibir una pensión de jubilación y continuará en el cargo.
 El estímulo que se otorgue no será considerado para los efectos de la determinación del monto de la pensión jubilatoria cuando se solicite y se retire.
-(REFORMADO, P.O. 3 DE FEBRERO DE 2017)
-Artículo Vigésimo Tercero.- A los trabajadores o sus beneficiarios que adquieran cualquiera de las pensiones contenidas en la presente Ley, el Instituto les otorgará una gratificación anual que deberá ser cubierta, a más tardar, el día veinte de diciembre de cada año, equivalente al importe de treinta y cinco días, calculados sobre el monto mensual de su pensión.
+(REFORMADO, P.O. 4 DE DICIEMBRE DE 2020)
+Artículo Vigésimo Tercero.- A los trabajadores o sus beneficiarios que adquieran cualquiera de las pensiones contenidas en la presente Ley, el Instituto les otorgará un haber de retiro que deberá ser cubierto a más tardar el día veinte de diciembre de cada año, equivalente al importe de cincuenta días calculados sobre el monto mensual de su pensión.
 Artículo Vigésimo Cuarto.- Las solicitudes de pensión o jubilación presentadas y en trámite con anterioridad al inicio de la vigencia del presente Decreto, se resolverán conforme al momento y a las condiciones en que se haya generado el derecho correspondiente, por lo que no serán afectadas por las modificaciones establecidas en esta Ley. Igual suerte correrán las que presenten los trabajadores con el derecho adquirido antes del inicio de la vigencia de este Decreto.
 El Congreso del Estado, previa iniciativa del Ejecutivo, continuará conociendo y aprobando las pensiones en los supuestos a que se refiere el párrafo anterior.
 Artículo Vigésimo Quinto.- Los montos de las pensiones y jubilaciones que se otorguen a los trabajadores en transición que no migraron al sistema de pensiones de cuentas individuales se incrementarán cada año, partiendo de la fecha de su otorgamiento, conforme al cambio anualizado del Índice Nacional de Precios al Consumidor.

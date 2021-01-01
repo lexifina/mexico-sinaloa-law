@@ -15,3 +15,7 @@ jubilenjubilaciónjubilación
 2034 a 20366055
 2037 en adelante6156
 El monto de la pensión por jubilación será el equivalente al 100% del salario regulador.
+(ADICIONADO, P.O. 4 DE DICIEMBRE DE 2020)
+En el caso de que los trabajadores al momento de que obtengan la antigüedad laboral requerida y no hayan cumplido edad biológica establecida en la tabla conforme al año que corresponda, estos tendrán derecho a hacer su solicitud de jubilación una vez cumplida la edad referida; y las instituciones empleadoras deberán recibir la documentación del expediente y dar trámite a la misma para los efectos de hacer entrega de la pensión a que tengan derecho. De no hacerse lo conducente, el servidor público de que se trate estará sujeto a las responsabilidades administrativas por omisión establecidas en la Ley de Responsabilidades Administrativas del Estado de Sinaloa.
+(ADICIONADO, P.O. 4 DE DICIEMBRE DE 2020)
+Los trabajadores que ya hayan cumplido los requisitos de años cotizados y la edad mínima de jubilación al momento de entrar en vigor este decreto, tendrán derecho a que se les entregue la pensión correspondiente.
