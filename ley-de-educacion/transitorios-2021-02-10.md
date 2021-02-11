@@ -1,0 +1,3 @@
+P.O. 10 DE FEBRERO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO 567 DEL H. CONGRESO DEL ESTADO.- SE REFORMA EL PÁRRAFO SEGUNDO Y SE ADICIONA UN PÁRRAFO TERCERO, A LA FRACCIÓN XXXII, DEL ARTÍCULO 145 DE LA LEY DE EDUCACIÓN PARA EL ESTADO DE SINALOA".]
+Único. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
