@@ -1,3 +1,6 @@
-(ADICIONADO, P.O. 26 DE JUNIO DE 2017)
-Artículo 67 Bis C. El órgano interno de control deberá inscribir y mantener actualizada la información correspondiente del Sistema de evolución patrimonial, de declaración de intereses y constancia de presentación de declaración fiscal; de todos los servidores públicos del Ayuntamiento, de conformidad con la Ley del Sistema Anticorrupción y la Ley de Responsabilidades Administrativas, ambas del Estado y la Ley General de Responsabilidades Administrativas.
-El titular del órgano interno de control se abstendrá de desempeñar cualquier otro empleo, trabajo o comisión públicos o privados, con excepción de los cargos docentes.
+(ADICIONADO, P.O. 8 DE MARZO DE 2021)
+Artículo 67 Bis C. Constituyen causas de remoción del Cronista Municipal, las siguientes:
+I. Por enfermedad o incapacidad física o mental debidamente comprobada que le impida ejercer el cargo;
+II. Por negligencia, falsedad y alteración de hechos históricos; así como la autenticación de hechos históricos falsos;
+III. Por incumplimiento de las actividades señaladas y las propias de su función; y
+IV. Por el cambio de residencia fuera de su Municipio.

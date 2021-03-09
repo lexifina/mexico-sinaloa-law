@@ -1,7 +1,7 @@
-(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 26 DE JUNIO DE 2017)
-CAPÍTULO X Bis
-DEL ÓRGANO INTERNO DE CONTROL
-(ADICIONADO, P.O. 26 DE JUNIO DE 2017)
-Artículo 67 Bis. Cada Ayuntamiento contará con un órgano interno de control, dotado de autonomía técnica y de gestión para decidir sobre su funcionamiento y resoluciones. Tendrá a su cargo prevenir, corregir, investigar y calificar actos u omisiones que pudieran constituir responsabilidades administrativas de servidores públicos de los Ayuntamientos y de particulares vinculados con faltas graves; para sancionar aquellas distintas a las que son competencia del Tribunal de Justicia Administrativa; revisar el ingreso, egreso, manejo, custodia, aplicación de recursos públicos; así como presentar las denuncias por hechos u omisiones que pudieran ser constitutivos de delito ante la Fiscalía Especializada en Combate a la Corrupción.
-El órgano interno de control tendrá un titular que lo representará y contará con la estructura orgánica, personal y recursos necesarios para el cumplimiento de su objeto.
-En el desempeño de su cargo, el titular del órgano interno de control se sujetará a los principios previstos en la Ley General de Responsabilidades Administrativas y la Ley de Responsabilidades Administrativas del Estado.
+(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 8 DE MARZO DE 2021)
+SECCIÓN SEGUNDA
+DEL CRONISTA MUNICIPAL
+(ADICIONADO, P.O. 8 DE MARZO DE 2021)
+Artículo 67 Bis. Para efectos de la presente Ley, se considera Cronista Municipal, al servidor público de la Administración Pública Municipal que tiene como objetivos fundamentales el registro de sucesos notables acaecidos dentro de la circunscripción territorial del municipio al que pertenezca; así como investigar, rescatar, conservar, difundir y promover su cultura.
+Será nombrado por la Presidencia Municipal. Durará en su cargo 3 años, y podrá ser reelecto por un período más. Dependerá Directamente de la Presidencia Municipal y el Reglamento Orgánico de la Administración Pública Municipal definirá la estructura y demás atribuciones de dicha área y su titular.
+En caso que se requiera se podrá nombrar cronistas adjuntos, quienes tendrán el carácter de honoríficos sin retribución alguna, serán nombrados por el Cronista Municipal.

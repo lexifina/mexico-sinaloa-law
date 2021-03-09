@@ -1,0 +1,3 @@
+P.O. 8 DE MARZO DE 2021.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO 591 DEL H. CONGRESO DEL ESTADO.- QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DE LA LEY DE GOBIERNO MUNICIPAL DEL ESTADO DE SINALOA".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
