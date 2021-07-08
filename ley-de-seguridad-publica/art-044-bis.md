@@ -1,4 +1,5 @@
 (REFORMADO, P.O. 20 DE ENERO DE 2020)
 Artículo 44 Bis.- El Gobierno del Estado y los Municipios reconocerán la suma de los años laborados en las instituciones de seguridad pública de los elementos que hayan prestado su servicio en cualquiera de los dos órdenes de gobierno, estatal o municipal, para efecto de otorgar la pensión por retiro o jubilación que por ley corresponda.
-Mediante la celebración de convenio establecerán los porcentajes de aportaciones solidarias entre ambas partes, de acuerdo al tiempo que los elementos hayan laborado en cada institución, de conformidad con lo establecido en esta Ley.
+(REFORMADO, P.O. 7 DE JULIO DE 2021)
+Los gobiernos estatal y municipales tienen la obligación de determinar los porcentajes de las aportaciones solidarias que les correspondan, en atención a los años de servicios prestados, de conformidad con lo establecido en esta Ley, cuando los integrantes de las instituciones policiales hayan laborado en el Gobierno del Estado y en uno o más municipios; o prestado sus servicios en dos o más municipios.
 La institución de seguridad pública estatal o municipal estará obligada a reconocer la antigüedad y otorgar la pensión o jubilación por los años de servicio prestados, a los elementos que cumplan con el tiempo laboral, establecidos en esta Ley.
