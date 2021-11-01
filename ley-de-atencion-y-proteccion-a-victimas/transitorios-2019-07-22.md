@@ -19,3 +19,4 @@ ARTÍCULO SÉPTIMO. Dentro de los ciento ochenta días siguientes a la entrada e
 ARTÍCULO OCTAVO. Los procedimientos iniciados por el delito de desaparición forzada de personas antes de la entrada en vigor del presente Decreto, se seguirán conforme a lo establecido en el Artículo Décimo Transitorio de la Ley General en Materia de Desaparición Forzada de Personas, Desaparición Cometida por Particulares y del Sistema Nacional de Búsqueda de Personas.
 Los procedimientos iniciados por el delito de tortura antes de la entrada en vigor del presente Decreto, se seguirán conforme a lo establecido en el Artículo Segundo Transitorio de la Ley General para Prevenir, Investigar y Sancionar la Tortura y Otros Tratos o Penas Crueles, Inhumanos o Degradantes.
 ARTÍCULO NOVENO. Se derogan todas las disposiciones que se opongan al presente Decreto.
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]

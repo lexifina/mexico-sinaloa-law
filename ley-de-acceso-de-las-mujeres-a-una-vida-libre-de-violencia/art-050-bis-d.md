@@ -10,8 +10,10 @@ IV. Secretaría de Turismo;
 V. Secretaría de Desarrollo Social;
 VI. Secretaría de Economía;
 VII. Secretaría de Educación Pública y Cultura;
-VIII. Secretariado Ejecutivo del Sistema Estatal de Seguridad Pública, a través del Centro de Justicia para Mujeres del Estado de Sinaloa;
-IX. Instituto Sinaloense de las Mujeres;
+(REFORMADA, P.O. 29 DE OCTUBRE DE 2021)
+VIII. Centro de Justicia para Mujeres del Estado de Sinaloa;
+(REFORMADA, P.O. 29 DE OCTUBRE DE 2021)
+IX. La Secretaría;
 X. Sistema Estatal para el Desarrollo Integral de la Familia;
 XI. Comisión Estatal de Búsqueda de Personas;
 XII. Instituto Estatal de Protección Civil;
