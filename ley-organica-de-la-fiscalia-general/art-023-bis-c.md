@@ -1,5 +1,12 @@
-(ADICIONADO [N. DE E. REFORMADO], P.O. 14 DE SEPTIEMBRE DE 2020)
-Artículo 23 Bis C. El Reglamento Interno de las Fiscalías Especializadas, detallará y establecerá sus estructuras orgánicas, recursos humanos y materiales, las atribuciones competenciales de cada uno de sus órganos internos, así como las facultades y obligaciones de las personas que sean titulares de las mismas, garantizando la adecuada operación, eficacia y eficiencia en su desempeño, a fin de cumplir en todo momento con la legislación en la materia respecto de la que tienen competencia y las tareas encomendadas.
-En la designación de las personas titulares correspondiente a la estructura organizacional de cada una de las Fiscalías Especializadas, se deberá de tomar en consideración el principio de paridad de género.
-Los acuerdos, circulares, instructivos, lineamientos, manuales y demás normas administrativas emitidas por parte de las Fiscalías Especializadas, que sean necesarios para regular la actuación de las instituciones a su cargo, en ningún caso podrán contradecir las normas administrativas emitidas por el Fiscal General.
-Las Fiscalías Especializadas en el desarrollo de las acciones de investigación y persecución de los delitos, sus atribuciones, así como demás procedimientos, se sujetarán a lo que expresamente establecen las Leyes Generales de la materia de su competencia, al Código Nacional de Procedimientos Penales, asimismo a la demás legislación aplicable.
+(REFORMADO, P.O. 1 DE DICIEMBRE DE 2021)
+Artículo 23 Bis C. Corresponde a la Fiscalía Especializada en Atención a Mujeres Víctimas del Delito por Razones de Género, la realización de las atribuciones siguientes:
+I. El ejercicio de las atribuciones a que se refiere el artículo 6 de esta Ley, cuando se trate de hechos en los que se haya privado de la vida a mujeres por razones de violencia de género. Igualmente, en los casos de los siguientes hechos o conductas delictivas en que la víctima sea mujer:
+a) Que atenten contra la libertad y seguridad sexual y el normal desarrollo psicosexual;
+b) Violencia familiar;
+c) Que atenten contra la obligación alimentaria;
+d) Desaparición de mujeres respecto de hechos no vinculados a la delincuencia organizada;
+e) Discriminación por razones de género; y
+f) Delitos en materia de trata de personas previstos en la Ley General para Prevenir, Sancionar y Erradicar los Delitos en Materia de Trata de Personas y para la Protección y Asistencia a las Víctimas de estos Delitos.
+II. La atención psicológica, médica y otras, en los casos de violencia contra las mujeres en los delitos o hechos contemplados en la fracción I de este artículo, en coordinación con otros órganos o unidades administrativas de la Fiscalía General que proporcionen los servicios a que se refiere el presente apartado; y
+III. La canalización a víctimas u ofendidas, en los casos de los apartados anteriores, hacia las dependencias o instituciones que proporcionen los servicios de carácter tutelar, asistencial, preventivo, educacional y demás de contenido similar, así como la vigilancia de su debida atención.
+Todas las acciones anteriores se realizarán con perspectiva de género.
