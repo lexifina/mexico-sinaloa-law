@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 28 DE ENERO DE 2022)
+ARTÍCULO 53 BIS A. Las Asociaciones Protectoras de Animales legalmente constituidas e inscritas ante la Secretaría de Desarrollo Sustentable, tendrán las siguientes facultades:
+I. Colaborar con las autoridades estatales y municipales competentes en el marco de los convenios que con ellas se celebren para la realización de campañas de vacunación, desparasitación, esterilización, sacrificio humanitario en los terminos previstos en el artículo 26 de esta Ley, promoción de cultura de tenencia responsable, respeto a los animales y demás acciones que se implementen para el desarrollo de las políticas en materia de esta Ley;
+II. Proporcionar albergue y custodia temporal a los animales asegurados con motivo de la aplicación de la presente Ley y en caso de contar con la infraestructura adecuada funcionar como albergues para animales; y
+III. Participar en coordinación con la Secretaría de Desarrollo Sustentable y los Ayuntamientos en la expedición de los protocolos de adopción.

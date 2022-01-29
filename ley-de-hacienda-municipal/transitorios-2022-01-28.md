@@ -1,0 +1,3 @@
+P.O. 28 DE ENERO DE 2022.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO 530 DEL H. CONGRESO DEL ESTADO.- QUE REFORMA, ADICIONA Y DEROGA DIVERSAS DISPOSICIONES DE LA LEY DE HACIENDA MUNICIPAL DEL ESTADO DE SINALOA".]
+ÚNICO. El presente Decreto entrará en vigor el día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".

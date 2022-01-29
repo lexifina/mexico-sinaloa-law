@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE ENERO DE 2022)
+ARTÍCULO 49 BIS D. Las personas físicas, morales y Asociaciones Protectoras de Animales cuya actividad involucre el manejo de animales estarán obligadas a fijar y mantener avisos visibles del riesgo de contagio de enfermedades zoonóticas, así como capacitar a su personal sobre el manejo seguro de animales para evitar los contagios, y contar con un plan de manejo de riesgos asociados con su giro.

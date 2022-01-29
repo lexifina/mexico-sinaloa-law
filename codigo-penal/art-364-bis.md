@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 28 DE ENERO DE 2022)
+ARTICULO 364 BIS.- Se impondrán de 2 a 4 años de prisión y de quinientos a seiscientos días multa así como el decomiso de los objetos, instrumentos y productos del delito, la clausura del establecimiento y la cancelación del permiso o licencia, a quien organice, explote, financie, promueva o realice, por cuenta propia o ajena, todo acto cuyo objeto sea la pelea de perros, ya sea en un espectáculo público o privado.
+Las mismas penas se impondrán a quien ayude a procurar la desaparición o alteración de los rastros, pruebas o instrumentos utilizados para organización o de las actividades previstas en este artículo.
+Procederá inmediatamente al aseguramiento de todos los animales que pudiera tener bajo su cuidado o resguardo, de conformidad con lo dispuesto en el presente código.

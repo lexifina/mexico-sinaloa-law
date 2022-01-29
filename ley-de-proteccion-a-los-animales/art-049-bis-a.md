@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE ENERO DE 2022)
+ARTÍCULO 49 BIS A. Los lugares denominados, guarderías, hoteles, pensiones, albergues temporales, refugios o santuarios de animales, deben de tener las instalaciones adecuadas considerando el número y las especies alojadas, así como asegurando que las mismas no queden expuestos a las inclemencias del clima y otros factores, además del área de estancia y paseo.
