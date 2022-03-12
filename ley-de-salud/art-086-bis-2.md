@@ -1,0 +1,10 @@
+(ADICIONADO, P.O. 11 DE MARZO DE 2022)
+Artículo 86 Bis 2. El personal médico o de enfermería de instituciones públicas o privadas a quien corresponda practicar la interrupción del embarazo y se declare objetor de conciencia, tendrá la obligación y responsabilidad de referir al beneficiario de la atención de la salud, de inmediato y sin mayor demora o trámite con su superior jerárquico o con personal médico o de enfermería no objetor.
+El personal médico y de enfermería no podrá invocar la objeción de conciencia cuando se trate de una urgencia médica o cuando su ejercicio implique una carga desproporcionada para los pacientes, en los siguientes casos:
+I. Cuando la negativa o postergación del servicio implique riesgo para la salud o la agravación de dicho riesgo;
+II. Cuando la negativa o postergación del servicio pueda producir daño, agravación del daño, la producción de secuelas y/o discapacidades;
+III. Cuando la negativa del servicio resulte en prolongar el sufrimiento del paciente por la tardanza en la atención médica, o signifique para éste un suplicio o carga desproporcionada;
+IV. Cuando no haya alternativa viable y accesible para brindar el servicio de salud requerido al paciente en condiciones de calidad y oportunidad por razones de distancia, de falta de disponibilidad de personal no objetor o algún otro inconveniente; y
+V. Cuando esté próximo a vencer el plazo para inducir la interrupción del embarazo de forma legal.
+Las instituciones públicas de salud están obligadas a garantizar la oportuna prestación de los servicios y la permanente disponibilidad de personal médico y de enfermería suficiente de carácter no objetor para asegurar que se preste la atención médica en la mejor de las condiciones posibles, conforme a las reglas de salud, sin comprometer la salud ni la vida de la persona solicitante del servicio, y sin que el ejercicio de la objeción de conciencia suponga una carga excesiva o desproporcionada en detrimento de las personas beneficiarias de los servicios de salud.
+El ejercicio de la objeción de conciencia del personal médico o de enfermería no derivará en ningún tipo de discriminación laboral.

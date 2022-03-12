@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 11 DE MARZO DE 2022)
+Artículo 86 Bis 1. El personal médico o de enfermería tendrá en todo momento la obligación de proporcionar a la mujer o persona gestante, información objetiva, veraz, suficiente y oportuna sobre los procedimientos de interrupción del embarazo, sus riesgos, consecuencias y efectos; así como de los apoyos y alternativas existentes, para que se pueda tomar la decisión de manera libre, responsable e informada.

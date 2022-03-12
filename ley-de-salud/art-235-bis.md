@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 11 DE MARZO DE 2022)
+Artículo 235 Bis. Los reclusorios que contengan internas mujeres o personas gestantes, contarán de forma permanente con servicios médicos de atención integral de la salud materno infantil. Para tal efecto, la Secretaría tendrá, entre otras, las siguientes atribuciones:
+I. Elaborar programas de salud integral para las mujeres y personas gestantes, desde una perspectiva de género, poniendo énfasis en la salud sexual y reproductiva, que consideren como mínimo la realización de estudios de detección de enfermedades y atención de cáncer de mama y cervicouterino, así como de VIH/SIDA a quienes lo soliciten, además de llevar a cabo campañas informativas de salud materno-infantil;
+II. Facilitar el acceso oportuno, bajo consentimiento informado, a métodos anticonceptivos, anticoncepción de emergencia, e interrupción del embarazo y de información sobre atención materno-infantil;
+III. Desarrollar programas para la prevención y atención de los problemas derivados del consumo de sustancias psicoactivas entre las mujeres y/o personas gestantes en reclusión, y
+IV. La atención integral del embarazo, parto, posparto y del recién nacido, así como la salud de madres e hijos que permanezcan con ellas, hasta los seis años de edad.
