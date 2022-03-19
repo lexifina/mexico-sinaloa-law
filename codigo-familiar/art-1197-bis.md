@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 16 DE MARZO DE 2022)
+Artículo 1197 Bis II. Se entenderá por identidad de género la convicción personal interna, tal como cada persona se percibe a sí misma, la cual puede corresponder o no al sexo asignado en el acta de nacimiento primigenia. En ningún caso será requisito acreditar intervención quirúrgica alguna, terapias, diagnóstico u otro procedimiento para el reconocimiento de la identidad de género.

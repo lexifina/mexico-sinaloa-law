@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 16 DE MARZO DE 2022)
+Artículo 1197 Bis I. La persona que requiera el reconocimiento de su identidad de género autopercibida puede tramitar el levantamiento de una nueva acta de nacimiento mediante juicio de conformidad con lo establecido en el Código de Procedimientos Familiares del Estado de Sinaloa o mediante procedimiento administrativo ante el Registro Civil del Estado de Sinaloa de conformidad con el presente Código.

@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 16 DE MARZO DE 2022)
+Artículo 1129 Bis. En los certificados de nacimiento de personas respecto de las cuales no se pueda determinar su sexo se deberá insertar aquel que mediante métodos científicos determine el médico respectivo o bien por el que opten la persona o personas que ejerzan su patria potestad. Queda a salvo el derecho de los padres y de la persona de solicitar la modificación respectiva en cualquier momento sobre su acta de nacimiento, o bien para el reconocimiento de su identidad de género en los términos establecidos en este Código.
+El certificado deberá ser presentado para el levantamiento de su acta de nacimiento y con el cual se determinará el sexo de la persona.
