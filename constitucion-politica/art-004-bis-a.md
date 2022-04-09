@@ -1,8 +1,7 @@
 (ADICIONADO, P.O. 26 DE MAYO DE 2008)
 Art. 4° Bis A. Las personas son titulares de los siguientes derechos y libertades reconocidos por esta Constitución:
-(NOTA: EL 9 DE SEPTIEMBRE DE 2021, EL PLENO DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN, EN LOS APARTADOS VII Y VIII, ASÍ COMO EN EL RESOLUTIVO SEGUNDO DE LA SENTENCIA DICTADA AL RESOLVER LA ACCIÓN DE INCONSTITUCIONALIDAD 106/2018 Y SU ACUMULADA 107/2018, DECLARÓ LA INVALIDEZ DE LA PORCIÓN NORMATIVA DE LA FRACCIÓN I DE ESTE ARTÍCULO INDICADA CON MAYÚSCULAS, LA CUAL SURTIÓ EFECTOS EL 13 DE SEPTIEMBRE DE 2021 DE ACUERDO A LAS CONSTANCIAS QUE OBRAN EN LA SECRETARÍA GENERAL DE ACUERDOS DE LA SUPREMA CORTE DE JUSTICIA DE LA NACIÓN. DICHA SENTENCIA PUEDE SER CONSULTADA EN LA DIRECCIÓN ELECTRÓNICA http://www.scjn.gob.mx/).
-(REFORMADA, P.O. 26 DE OCTUBRE DE 2018)
-I. Toda persona tiene derecho a que se respete su vida. El Estado tutela el derecho a la vida DESDE EL MOMENTO EN QUE UN INDIVIDUO ES CONCEBIDO, ENTRA BAJO LA PROTECCIÓN DE LA LEY CORRESPONDIENTE, HASTA SU MUERTE, respetando en todo momento la dignidad de las personas.
+(REFORMADA, P.O. 8 DE ABRIL DE 2022)
+I. Toda persona tiene derecho a que se respete su vida. El Estado tutela el derecho a la vida respetando en todo momento la dignidad de las personas.
 II. Queda prohibida la pena de muerte y la de prisión perpetua.
 III. Nadie será sometido sin su libre consentimiento a exámenes y experimentos médicos o científicos, respetándosele en todo tiempo el derecho a decidir sobre la difusión de los resultados obtenidos.
 IV. Todo ser humano tiene derecho a un nombre propio y a los apellidos de sus padres o al de uno de ellos. La ley regulará la forma de asegurar este derecho.
