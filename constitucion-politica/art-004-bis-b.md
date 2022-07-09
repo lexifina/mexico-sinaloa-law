@@ -34,3 +34,5 @@ El Estado y los Municipios deberán garantizar el acceso a internet gratuito ina
 XI. Toda familia tiene derecho a disfrutar de vivienda digna y decorosa. La Ley establecerá los instrumentos y apoyos necesarios a fin de alcanzar tal objetivo.
 (ADICIONADA, P.O. 12 DE JUNIO DE 2019)
 XII. Toda persona tiene derecho a que se respete su integridad personal. El Estado y los Municipios establecerán las medidas necesarias para protegerlas contra cualquier acto de desaparición forzada y desaparición cometida por particulares; y contra la tortura y otros tratos o penas crueles, inhumanos o degradantes.
+(ADICIONADA, P.O. 8 DE JULIO DE 2022)
+XIII. Toda persona tiene derecho a la movilidad en condiciones de seguridad vial, accesibilidad, eficiencia, sostenibilidad, calidad, inclusión e igualdad.
