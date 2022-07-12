@@ -13,6 +13,10 @@ c) De ser el caso, la lateralidad;
 d) La incidencia y el estado de la enfermedad; y
 e) La histología del tumor primario y su comportamiento.
 III. Información respecto al tratamiento aplicado al paciente y el seguimiento dado al mismo por parte de los médicos. Además, se incluirá información de curación y supervivencia;
-IV. La fuente de información utilizada para cada modalidad de diagnóstico y de tratamiento; y
-V. Toda aquella información adicional que determine la Secretaría.
+(REFORMADA, P.O. 11 DE JULIO DE 2022)
+IV. La fuente de información utilizada para cada modalidad de diagnóstico y de tratamiento;
+(REFORMADA, P.O. 11 DE JULIO DE 2022)
+V. Toda aquella información adicional que determine la Secretaría de Salud; y
+(ADICIONADA, P.O. 11 DE JULIO DE 2022)
+VI. Tendrá un rubro específico para la información del Registro Estatal de Cáncer en la Infancia y Adolescencia a que se refiere la Ley para la Detección Oportuna del Cáncer en la Infancia y la Adolescencia del Estado de Sinaloa.
 La Secretaría, a través del Director General de los Servicios de Salud de Sinaloa, integrará la información demográfica del Registro Estatal de Cáncer de todo el territorio del Estado, dividido en regiones norte, centro y sur.
