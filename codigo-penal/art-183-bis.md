@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 12 DE AGOSTO DE 2022)
+ARTICULO 183 BIS. Al que con o sin el consentimiento expreso, voluntario, genuino y deseado de una persona menor de quince años, o que no tenga capacidad de comprender el significado del hecho, o que por cualquier causa no tenga la capacidad de resistirlo, ejecute en ella o lo haga ejecutar un acto sexual, sin el propósito de llegar a la cópula o lo obligue a observar cualquier acto sexual, se le aplicarán de diez a dieciocho años de prisión y de cien a quinientos días multa.
+Si se hiciere uso de la violencia física o moral o se realice la conducta a que se refiere este artículo de manera reiterada, la pena se aumentará en una mitad más en su mínimo y máximo.

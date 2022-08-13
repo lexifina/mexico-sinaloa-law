@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 12 DE AGOSTO DE 2022)
+ARTICULO 183 BIS B. Para efectos del artículo 183 Bis, se entiende por actos sexuales la acción dolosa con fines lascivos consistente en los tocamientos, manoseos corporales obscenos, o los que representen actos explícitamente sexuales u obliguen al sujeto pasivo a representarlos y que se ejerzan en caso de menores de 15 años con o sin el consentimiento de este con el elemento intencional del sujeto activo de satisfacer un deseo sexual.
+En el caso de los artículos 183 y 183 Bis A, se entenderá por acto sexual lo referido en el párrafo que antecede, con la salvedad de que las conductas se deberán realizar por el sujeto activo sin el consentimiento expreso, voluntario, genuino y deseado del sujeto pasivo.
