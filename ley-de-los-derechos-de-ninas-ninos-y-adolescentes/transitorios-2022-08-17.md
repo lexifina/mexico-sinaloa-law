@@ -1,0 +1,3 @@
+P.O. 17 DE AGOSTO DE 2022.
+[N. DE E. TRANSITORIO DEL DECRETO NÚMERO: 232 POR EL QUE "SE REFORMAN LAS FRACCIONES VII Y IX DEL ARTÍCULO 51, DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE SINALOA".]
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
