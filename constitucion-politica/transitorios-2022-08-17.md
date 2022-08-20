@@ -1,0 +1,5 @@
+P.O. 17 DE AGOSTO DE 2022.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 197 POR EL QUE SE REFORMAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE SINALOA".]
+PRIMERO. El presente Decreto entrará en vigor el primer día hábil del mes de enero del año 2023, previa publicación en el Periódico Oficial "El Estado de Sinaloa", sin perjuicio de lo establecido en los artículos transitorios subsecuentes.
+SEGUNDO. Por única ocasión la Auditoría Superior presentará al Congreso del Estado por conducto de su Comisión de Fiscalización, el Informe General y los Informes Individuales correspondientes a la revisión y fiscalización de la Cuenta Pública del ejercicio fiscal del año 2021, el día 30 de septiembre del año 2022.
+TERCERO. De conformidad con lo previsto en el Artículo Transitorio anterior, el Congreso del Estado deberá concluir la revisión de la Cuenta Pública del ejercicio fiscal del año 2021 en términos de lo previsto por el artículo 43, fracción XXII de la Constitución Política del Estado de Sinaloa, por única ocasión, a más tardar el día 31 de enero del año 2023.
