@@ -18,7 +18,7 @@ Capítulos I, II, III, IV, V, VI, VII y VIII del Título V, del Código Civil pa
 CUARTO. Se derogan las disposiciones que se opongan al presente ordenamiento.
 QUINTO. A falta de disposición específica de este Código y en tanto se expida el Código de Procedimiento Familiares, se aplicarán las normas del Código Civil para el Estado de Sinaloa y del Código de Procedimientos Civiles para el Estado de Sinaloa.
 SEXTO. Las controversias del orden familiar, que estén en trámite en el momento de la iniciación de la vigencia de este Código, se resolverán conforme a lo prescrito en los Códigos Civil y de Procedimientos Civiles para el Estado de Sinaloa, contenidos en el Decreto No. 814 de la XXXVI Legislatura del H. Congreso del Estado, de fecha dieciocho días del mes de junio de mil novecientos cuarenta y Decreto No. 872 de la XXXVI Legislatura del H. Congreso del Estado de fecha trece días del mes de septiembre de mil novecientos cuarenta, respectivamente.
-Es dado en el Palacio del Poder Legislativo del Estado, en la ciudad de Culiacán Rosales, Sinaloa, a los diecisiete días del mes de enero del año dos mil trece.
+Es dado en el Palacio del Poder Legislativo del Estado, en la ciudad de Culiacán Rosales Sinaloa, a los diecisiete días del mes de enero del año dos mil trece.
 C. CARLOS EDUARDO FELTON GONZÁLEZ
 DIPUTADO PRESIDENTE
 C. SUSANO MORENO DÍAZ
