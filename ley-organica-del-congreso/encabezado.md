@@ -1,6 +1,5 @@
 [N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ORDENAMIENTO Y SUS DECRETOS DE MODIFICACIONES, SE SUGIERE CONSULTAR LOS ARTÍCULOS TRANSITORIOS CORRESPONDIENTES.]
 LEY ORGÁNICA DEL CONGRESO DEL ESTADO DE SINALOA
-[N. DE E. CONTIENE LA FE DE ERRATAS PUBLICADA EN EL PERIÓDICO OFICIAL DEL 2 DE SEPTIEMBRE DE 2022.]
 Ley publicada en la Segunda Sección del Periódico Oficial del Estado de Sinaloa, el lunes 20 de noviembre de 1995.
 GOBIERNO DEL ESTADO
 El Congreso del Estado Libre y Soberano de Sinaloa, representado por su Quincuagésima Cuarta Legislatura, ha tenido a bien expedir el siguiente:
