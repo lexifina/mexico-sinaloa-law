@@ -6,3 +6,5 @@ III. Actos presuntamente irregulares en la contratación y ejecución de obras, 
 IV. La comisión recurrente de irregularidades en el ejercicio de los recursos públicos; y,
 V. Inconsistencia en la información financiera o programática de cualquier entidad fiscalizada que oculte o pueda originar daños o perjuicios a su patrimonio.
 La Auditoría Superior del Estado informará al denunciante la resolución que tome sobre la procedencia de iniciar la revisión correspondiente, dentro de los quince días hábiles posteriores a su emisión.
+(ADICIONADO, P.O. 17 DE AGOSTO DE 2022)
+En el caso de las denuncias a través de medios electrónicos, la respuesta se realizará por el mismo medio de conformidad con las disposiciones aplicables.

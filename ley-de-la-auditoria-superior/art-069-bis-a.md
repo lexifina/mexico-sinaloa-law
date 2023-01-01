@@ -4,7 +4,14 @@ I. Los criterios de selección, el objetivo, el alcance, los procedimientos de a
 II. Los nombres de los servidores públicos de la Auditoría Superior del Estado a cargo de realizar la auditoría o, en su caso, de los despachos o profesionales independientes contratados para llevarla a cabo;
 III. El cumplimiento, en su caso, de la Ley General de Contabilidad Gubernamental, Ley de Disciplina Financiera de las Entidades Federativas y de los Municipios, Ley de Ingresos y Presupuesto de Egresos del Estado de Sinaloa o Leyes de Ingresos Municipales para el Ejercicio Fiscal correspondiente, respectivamente, así como Ley de Deuda Pública, Ley de Coordinación Fiscal y demás disposiciones jurídicas aplicables;
 IV. Los resultados de la fiscalización efectuada;
+[N. DE E. DEL ANÁLISIS AL PRESENTE ORDENAMIENTO, SE ADVIERTE QUE EL CONTENIDO DE ÉSTA FRACCIÓN ES SIMILAR A LA FRACCIÓN VI.]
 V. Las observaciones, recomendaciones, acciones, con excepción de los informes de presunta responsabilidad administrativa, y en su caso denuncias de hechos; y,
-VI. Un apartado específico en cada una de las auditorías realizadas donde se incluyan una síntesis de las justificaciones y aclaraciones que, en su caso, las entidades fiscalizadas hayan presentado en relación con los resultados y las observaciones que se les hayan hecho durante las revisiones.
+[N. DE E. DEL ANÁLISIS AL PRESENTE ORDENAMIENTO, SE ADVIERTE QUE EL CONTENIDO DE ÉSTA FRACCIÓN ES SIMILAR A LA FRACCIÓN V.]
+(REFORMADA, P.O. 17 DE AGOSTO DE 2022)
+VI. Las observaciones, recomendaciones, acciones, con excepción de los informes de presunta responsabilidad administrativa, y en su caso denuncias de hechos;
+(REFORMADA [N. DE E. ADICIONADA], P.O. 17 DE AGOSTO DE 2022)
+VII. Un apartado específico en cada una de las auditorías realizadas donde se incluyan una síntesis de las justificaciones y aclaraciones que, en su caso, las entidades fiscalizadas hayan presentado en relación con los resultados y las observaciones que se les hayan hecho durante las revisiones; y
+(ADICIONADA, P.O. 17 DE AGOSTO DE 2022)
+VIII. Un apartado específico con las acciones que la Auditoría haya promovido.
 Asimismo, considerará, en su caso, el cumplimiento de los objetivos de aquellos programas que promuevan la igualdad entre mujeres y hombres, así como la erradicación de la violencia y cualquier forma de discriminación de género.
 Los informes individuales a que hace referencia el presente capítulo tendrán el carácter de públicos, y se mantendrán en la página electrónica oficial de la Auditoría Superior del Estado, en Formatos Abiertos conforme a lo establecido en la Ley General de Transparencia y Acceso a la Información Pública y Ley de Transparencia y Acceso a la Información Pública del Estado.

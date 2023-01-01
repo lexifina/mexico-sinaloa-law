@@ -1,7 +1,7 @@
 (REFORMADO [N. DE E. ESTE PÁRRAFO], P.O. 9 DE OCTUBRE DE 2017)
 Artículo 34 Bis A. La revisión de la documentación original comprobatoria y justificativa de la cuenta pública de los Poderes del Estado y los Municipios se llevará a cabo en sus propias oficinas, en forma posterior y con oportunidad al cierre de cada ejercicio fiscal.
-(ADICIONADO, P.O. 19 DE ABRIL DE 2013)
-La revisión de la documentación original comprobatoria y justificativa de los informes sobre la aplicación de los recursos públicos recibidos durante el ejercicio fiscal anterior, que los Entes Públicos Estatales y Municipales deben presentar, se llevará a cabo en sus propias oficinas, en forma posterior al cierre del ejercicio fiscal correspondiente.
+(REFORMADO, P.O. 17 DE AGOSTO DE 2022)
+La revisión de la documentación original comprobatoria y justificativa de la información sobre la aplicación de los recursos públicos estatales o municipales, asignados a los organismos paraestatales o paramunicipales y órganos constitucionales autónomos y demás entes públicos, que hayan recibido durante el ejercicio fiscal anterior, se llevará a cabo en sus propias oficinas, en forma posterior al cierre del ejercicio fiscal correspondiente.
 (ADICIONADO, P.O. 19 DE ABRIL DE 2013)
 La Auditoría Superior del Estado podrá solicitar la documentación a que se refiere el párrafo anterior en medios electrónicos.
 (ADICIONADO, P.O. 19 DE ABRIL DE 2013)
