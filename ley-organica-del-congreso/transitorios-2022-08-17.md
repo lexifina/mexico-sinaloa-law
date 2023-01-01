@@ -1,6 +1,7 @@
 P.O. 17 DE AGOSTO DE 2022.
 [N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO: 231 POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE LA AUDITORÍA SUPERIOR Y LEY ORGÁNICA DEL CONGRESO, AMBAS DEL ESTADO DE SINALOA".]
-ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el día primero de enero de 2023, previa su publicación en el Periódico Oficial "El Estado de Sinaloa".
+(F. DE E., P.O. 2 DE SEPTIEMBRE DE 2022)
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor el segundo día hábil de enero de 2023, previa publicación en el Periódico Oficial "El Estado de Sinaloa".
 ARTÍCULO SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
 ARTÍCULO TERCERO. Los procedimientos iniciados por las autoridades de la Auditoría Superior del Estado con anterioridad a la entrada en vigor del presente Decreto, serán concluidos conforme a las disposiciones aplicables vigentes a su inicio, salvo lo relativo al ejercicio fiscal del año 2021 cuyos informes general (sic) e informes individuales deberán ser presentados el día 30 de septiembre de 2022 y el Congreso del Estado, por única ocasión deberá terminar la revisión de dicha cuenta pública, a más tardar, el día 31 de enero del año 2023, de conformidad con los artículos segundo y tercero transitorio del Decreto 197, por el que se reforman y derogan diversas disposiciones de la Constitución Política del Estado de Sinaloa, en materia de fiscalización.
 ARTÍCULO CUARTO. La Auditoría Superior del Estado deberá realizar las modificaciones pertinentes a su Reglamento Interior y demás normatividad aplicable derivadas del presente Decreto a más tardar el día primero de enero de 2023.
