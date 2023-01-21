@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE ENERO DE 2023)
+ARTICULO 4 BIS 6.- Los municipios recibirán el 20% de la recaudación que obtenga el Estado procedente del rezago del impuesto de la tenencia o uso de vehículos federal, y se distribuirá entre los municipios de acuerdo al coeficiente efectivo que resulte del Fondo Municipal de participaciones y se deberán realizar los ajustes mencionados en el tercer párrafo del artículo 5 de esta Ley.

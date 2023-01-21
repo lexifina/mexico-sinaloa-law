@@ -1,0 +1,4 @@
+[N. DE E. VÉASE FÓRMULAS EN EL P.O. DE 25 DE DICIEMBRE DE 2019, PÁGINAS DE LA 35 A LA 37.]
+(ADICIONADO, P.O. 20 DE ENERO DE 2023)
+ARTICULO 4 BIS 4.- Las fórmulas que distribuyen los conceptos que integran el Fondo Municipal de Participaciones y el Fondo de Fomento Municipal no serán aplicables en el evento de que (sic) en el mes que se calculen, el monto de uno o más conceptos sea inferior a los obtenidos en el 2015. En dicho supuesto la distribución del o los conceptos de que se trate se realizarán en relación con la cantidad efectiva obtenida en el mes que se calcula y de acuerdo con el o los coeficientes definitivos que cada municipio haya recibido de dicho concepto en el 2015, respectivamente.
+Las cifras como base de referencia para el año 2015 serán las presentadas en el anexo A del manual de distribución de participaciones federales y estatales publicado en el Periódico Oficial "El Estado de Sinaloa" el 05 de junio de 2019.

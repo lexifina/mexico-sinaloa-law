@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE ENERO DE 2023)
+ARTICULO 5 BIS.- Los municipios recibirán el 20% de la recaudación que corresponda al Estado procedente de los contribuyentes que tributen en los términos del artículo 126 de la Ley del Impuesto sobre la Renta, derivada de la enajenación de bienes inmuebles, y se distribuirá entre los municipios de acuerdo al coeficiente efectivo que resulte del Fondo Municipal de participaciones y se deberán realizar los ajustes mencionados en el tercer párrafo del artículo 5 de esta Ley.

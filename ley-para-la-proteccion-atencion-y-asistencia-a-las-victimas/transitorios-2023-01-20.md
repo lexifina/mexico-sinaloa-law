@@ -1,0 +1,4 @@
+P.O. 20 DE ENERO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 376 DEL H. CONGRESO DEL ESTADO.- POR EL QUE SE REFORMAN, ADICIONAN Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY PARA LA PROTECCIÓN, ATENCIÓN Y ASISTENCIA A LAS VÍCTIMAS DE LOS DELITOS EN MATERIA DE TRATA DE PERSONAS DEL ESTADO DE SINALOA".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+ARTÍCULO SEGUNDO. Se derogan todas aquellas disposiciones que contravengan al presente Decreto.
