@@ -1,0 +1,9 @@
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 14 DE ABRIL DE 2023)
+CAPÍTULO X
+DE LA VIOLENCIA DIGITAL Y MEDÍATICA
+(ADICIONADO, P.O. 14 DE ABRIL DE 2023)
+Artículo 24 Bis F. Violencia digital es toda acción o conducta dolosa realizada, instigada o agravada mediante el uso de tecnologías de la información y la comunicación por las que se exponga, distribuya, difunda, exhiba, transmita, comercialice, oferte, intercambie o comparta imágenes, audios o videos reales o simulados de una o varias mujeres con el objeto de difamar, desprestigiar, calumniar, injuriar, denigrar, descalificar o dañar de manera física, psicológica, emocional o simbólicamente, en cualquier ámbito de su vida pública, privada o en su imagen propia.
+Existe también violencia digital, cuando sin el consentimiento de la o las mujeres se expongan, distribuyan, difundan, exhiban, transmitan, comercialicen, oferten, intercambie o comparta imágenes, audios o videos, reales o simulados cuyo contenido sea íntimo sexual, utilizando los mismos medios tecnológicos a los que se refiere el párrafo anterior.
+También se considera violencia digital la acción dolosa de amenazar, chantajear, coaccionar o extorsionar a una mujer con el objeto de que realice las conductas anteriormente descritas donde el contenido íntimo sea de ella o de otra persona.
+Para efectos del presente Capítulo se entenderá por tecnologías de la información y las comunicaciones aquellos recursos, redes sociales, aplicaciones de sistemas informáticos para dispositivos móviles y tabletas, herramientas y programas que se utilizan para procesar, administrar y compartir la información mediante diversos soportes tecnológicos.
+La violencia digital será sancionada en la forma y términos que establezca el Título Octavo denominado Delitos Contra la Libertad Sexual y su Normal Desarrollo del Libro Segundo, Parte Especial, Sección Primera, Delitos Contra el Individuo, del Código Penal para el Estado de Sinaloa.
