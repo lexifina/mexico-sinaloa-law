@@ -1,0 +1,7 @@
+P.O. 24 DE MAYO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 434 DEL H. CONGRESO DEL ESTADO.- QUE REFORMA Y ADICIONA DIVERSAS DISPOSICIONES DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES Y DEL CÓDIGO FAMILIAR, AMBOS DEL ESTADO DE SINALOA".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+SEGUNDO. El Poder Ejecutivo del Estado realizará las adecuaciones reglamentarias correspondientes, en un plazo que no excederá de ciento ochenta días hábiles contados a partir de la entrada en vigor del presente Decreto. No obstante, los procesos administrativos y judiciales de adopción se ajustarán al presente Decreto a partir de su entrada en vigor.
+TERCERO. Los procesos administrativos y judiciales de adopción que se encuentren en trámite a la fecha de entrada en vigor del presente Decreto, se seguirán conforme a la normatividad aplicable al momento de su inicio, pero se podrá aplicar lo dispuesto en este decreto en todo aquello que beneficie al interés superior de la niñez.
+CUARTO. Niñas, niños y adolescentes que actualmente se encuentren acogidos en instituciones públicas o privadas, respecto de los cuales el Sistema Estatal DIF o la Procuraduría de Protección, pueda dar constancia de su condición de expósito o abandonado conforme a lo dispuesto en el artículo 27 Bis 1, serán sujetos de adopción a partir de la entrada en vigor de este Decreto.
+QUINTO. Se derogan todas las disposiciones que se opongan al presente Decreto.
