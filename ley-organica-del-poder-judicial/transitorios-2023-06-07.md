@@ -1,0 +1,5 @@
+P.O. 7 DE JUNIO DE 2023.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 496 DEL H. CONGRESO DEL ESTADO.- POR EL QUE SE REFORMA LA LEY ORGÁNICA DEL PODER JUDICIAL DEL ESTADO DE SINALOA".]
+PRIMERO. El presente Decreto iniciará su vigencia al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+SEGUNDO. Las Regiones creadas mediante el Decreto 177 QUE DECLARA ADOPTADO EN EL ESTADO DE SINALOA EL SISTEMA PROCESAL PENAL ACUSATORIO Y ORAL Y EL INICIO DE VIGENCIA GRADUAL DEL CÓDIGO NACIONAL DE PROCEDIMIENTOS PENALES, subsistirán en sus términos en el entendido de que por Región se entenderá Circuito Judicial, y los mismos podrán ser modificados por el Pleno conforme a las necesidades del servicio, de conformidad con el segundo párrafo del artículo 17 de la Ley Orgánica del Poder Judicial del Estado de Sinaloa.
+TERCERO. Se abroga el Decreto Número 177, que declara adoptado en el Estado de Sinaloa el Sistema Penal Acusatorio y Oral y el inicio de vigencia gradual del Código Nacional de Procedimientos Penales, publicado en el Periódico Oficial "El Estado de Sinaloa" No. 92, de fecha 31 de julio de 2014.
