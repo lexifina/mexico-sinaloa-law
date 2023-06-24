@@ -37,3 +37,5 @@ XI. Toda familia tiene derecho a disfrutar de vivienda digna y decorosa. La Ley 
 XII. Toda persona tiene derecho a que se respete su integridad personal. El Estado y los Municipios establecerán las medidas necesarias para protegerlas contra cualquier acto de desaparición forzada y desaparición cometida por particulares; y contra la tortura y otros tratos o penas crueles, inhumanos o degradantes.
 (ADICIONADA, P.O. 8 DE JULIO DE 2022)
 XIII. Toda persona tiene derecho a la movilidad en condiciones de seguridad vial, accesibilidad, eficiencia, sostenibilidad, calidad, inclusión e igualdad.
+(ADICIONADA, P.O. 23 DE JUNIO DE 2023)
+XIV. El desarrollo integral de las personas jóvenes, impulsando políticas públicas con un enfoque multidisciplinario, que propicien su inclusión en los ámbitos político, social, económico y cultural del Estado y sus municipios.
