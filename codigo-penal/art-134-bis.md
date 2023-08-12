@@ -25,5 +25,6 @@ III. Cuando el delito sea cometido por dos o más personas;
 IV. Cuando el delito sea cometido en presencia de una o más personas con quienes la víctima tuviere un vínculo de parentesco o bien, de noviazgo, amistad, afectiva, de confianza o cualquier relación de hecho;
 V. Cuando el sujeto activo se haya valido de su oficio de conductor de un vehículo de transporte de pasajeros o de turismo público o privado, para la comisión del delito; o
 VI. Cuando la víctima sea una niña, adolescente, adulta mayor o con discapacidad.
-Además de las sanciones descritas en el presente artículo, el sujeto activo perderá todos los derechos con relación a la víctima, incluidos los de carácter sucesorio.
+(REFORMADO, P.O. 11 DE AGOSTO DE 2023)
+Además de las sanciones descritas en el presente artículo, el sujeto activo perderá todos los derechos con relación a la víctima, incluidos los de carácter sucesorio. En su caso, también perderá todo derecho con relación a los hijos de la víctima, garantizando el interés superior de la niñez en términos de lo previsto por la Ley General de los Derechos de Niñas, Niños y Adolescentes.
 Cuando no se acredite el feminicidio, se aplicarán las reglas del homicidio.
