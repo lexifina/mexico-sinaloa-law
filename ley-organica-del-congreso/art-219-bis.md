@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 25 DE AGOSTO DE 2023)
+ARTICULO 219 Bis. De conformidad con el artículo 42 de la Constitución Política del Estado, toda resolución del Congreso tendrá el carácter de Ley, Decreto o Acuerdo.
+Será Ley cuando se trate de la expedición de un nuevo cuerpo normativo que otorgue derechos o imponga obligaciones a la generalidad de las personas o regule un poder, organismo con autonomía reconocida en la Constitución o un organismo público de naturaleza administrativa en lo particular.
+Será Decreto cuando se modifique una parte de una Ley, Leyes o de la Constitución Política del Estado, o bien se expida o modifique algún Decreto por el cual se haya instituido o regulado una figura jurídica en lo particular.
+Será Acuerdo cuando se resuelvan asuntos de carácter interno o bien se proponga el desechamiento de iniciativas mediante dictamen de la Comisión o Comisiones Permanentes y aprobado por el Pleno. También se expedirá un Acuerdo cuando se haya desechado una iniciativa en el Pleno previa fundamentación y motivación.
