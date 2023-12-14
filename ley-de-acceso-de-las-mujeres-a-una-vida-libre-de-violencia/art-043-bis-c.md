@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 14 DE DICIEMBRE DE 2023)
+Artículo 43 Bis C. Las autoridades facultadas para emitir órdenes de protección, realizarán las gestiones necesarias para garantizar su cumplimiento, monitoreo y ejecución. Para lo anterior se allegarán de los recursos materiales y humanos necesarios, asimismo podrán solicitar la colaboración de las autoridades competentes.
+Toda autoridad estatal o municipal en el Estado, tiene la estricta obligación de coadyuvar y colaborar, en el ámbito de sus atribuciones, con las autoridades que emitan órdenes de protección, con la finalidad de que éstas sean ejecutadas.

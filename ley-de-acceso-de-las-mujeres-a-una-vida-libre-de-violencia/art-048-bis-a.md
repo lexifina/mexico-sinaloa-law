@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 14 DE DICIEMBRE DE 2023)
+Artículo 48 Bis A. Durante los primeros seis días posteriores a la implementación de las órdenes, la autoridad que la emitió mantendrá contacto directo con la mujer víctima de violencia cada 24 horas. A partir del séptimo día, se establecerá un plan de seguimiento personalizado, de acuerdo a las circunstancias, la valoración del riesgo y el avance en la carpeta de investigación.
