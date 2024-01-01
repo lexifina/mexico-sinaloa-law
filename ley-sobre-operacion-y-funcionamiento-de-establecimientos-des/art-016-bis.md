@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 13 DE DICIEMBRE DE 2023)
+Artículo 16 Bis. La licencia para boutique de cerveza artesanal, microcervecerías y salas de degustación para la venta exclusiva de cerveza artesanal, se otorgarán a precio preferencial siempre y cuando estos sean de producción, distribución y comercialización dentro del Estado de Sinaloa, a fin de impulsar el desarrollo económico generado por el sector de la cerveza artesanal en el Estado.
