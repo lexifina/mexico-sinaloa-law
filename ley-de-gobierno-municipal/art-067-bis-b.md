@@ -4,7 +4,8 @@ I. Llevar el registro cronológico de los sucesos notables de su Municipio;
 II. Investigar, conservar, exponer, difundir y promover la cultura e historia municipal;
 III. Elaborar el calendario cívico municipal;
 IV. Elaborar el inventario de monumentos arqueológicos, históricos y artísticos que se encuentren en el territorio del municipio;
-V. Proponer al Ayuntamiento la regulación, así como la modificación a la nomenclatura en las calles, avenidas y colonias dentro de la zona urbana y rural del municipio, basándose siempre en razones de índole histórica y social;
+(REFORMADA, P.O. 26 DE ENERO DE 2024)
+V. Proponer al Ayuntamiento la regulación, así como la modificación a la nomenclatura en las calles, avenidas y colonias dentro de la zona urbana y rural del municipio, atendiendo a lo dispuesto en el artículo 29 de la presente Ley.
 VI. Ser órgano de consulta del Ayuntamiento para todo lo relacionado con la cultura, el turismo y el patrimonio cultural del Municipio;
 VII. Establecer coordinación con sus similares en reuniones estatales y nacionales;
 VIII. Opinar sobre la preservación, restauración y modificación de monumentos históricos, edificios, jardines, calles o plazas, con objeto de que conserven su valor histórico o cultural;
