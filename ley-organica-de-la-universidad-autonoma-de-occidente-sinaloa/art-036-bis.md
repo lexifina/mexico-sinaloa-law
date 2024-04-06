@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 5 DE ABRIL DE 2024)
+Artículo 36 Bis. Quienes aspiren a la titularidad de las direcciones de las Unidades Regionales deberán registrar su candidatura ante el Consejo Técnico de su respectiva Unidad Regional, el cual revisará cumplan con los requisitos de elegibilidad. Para ser Director de Unidad Regional se exigirán los mismos requisitos que para ser Rector.
+Las campañas de proselitismo están prohibidas y quien las realice perderá por ese solo hecho su registro como aspirante.
+Para la elección de la persona titular de la dirección de la Unidad Regional, el Consejo Técnico respectivo, organizará comparecencias, en las que los aspirantes den a conocer su plan de trabajo ante la comunidad universitaria de dicha unidad, pudiendo hacer uso de las tecnologías y medios digitales correspondientes.

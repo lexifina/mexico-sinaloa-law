@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 5 DE ABRIL DE 2024)
+Artículo 21 Bis. El Consejo Universitario es la máxima autoridad de la Universidad, sus acuerdos son de observancia obligatoria para la comunidad universitaria, siempre y cuando no contravengan lo establecido en la Constitución Política de los Estados Unidos Mexicanos, y las leyes aplicables en la materia; y sólo pueden ser abrogados o modificados por el propio Consejo.
