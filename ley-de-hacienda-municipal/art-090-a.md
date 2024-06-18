@@ -15,7 +15,7 @@ Licorería707070
 Supermercado147136126
 Almacén236203171
 Cantina153126115
-Cervecería 1038585
+Cervecería1038585
 Bar153126126
 Cabaret126103103
 Centro Nocturno203171153
@@ -34,6 +34,16 @@ Ultramarinos147136126
 Depósito de cerveza147147147
 Agencia Matriz con venta
 al público en general236236236
+(REFORMADO [N. DE E. ADICIONADO], P.O. 17 DE JUNIO DE 2024)
+Boutique de cerveza
+artesanal808080
+(REFORMADO [N. DE E. ADICIONADO], P.O. 17 DE JUNIO DE 2024)
+Microcervecería de
+cerveza artesanal100100100
+(REFORMADO [N. DE E. ADICIONADO], P.O. 17 DE JUNIO DE 2024)
+Sala de degustación
+para la venta exclusiva
+de cerveza artesanal100100100
 b).- Por la autorización de horario extraordinario para el funcionamiento de establecimientos con venta y/o consumo de bebidas alcohólicas, por cada hora se causarán derechos conforme a la siguiente:
 TARIFA
 GIROSCATEGORIA
@@ -60,6 +70,16 @@ Ultramarinos0.390.390.39
 Depósito de Cerveza0.810.810.81
 Agencia Matriz con venta
 al Público en general0.810.810.81
+(REFORMADO [N. DE E. ADICIONADO], P.O. 17 DE JUNIO DE 2024)
+Boutique de cerveza
+artesanal0.300.300.30
+(REFORMADO [N. DE E. ADICIONADO], P.O. 17 DE JUNIO DE 2024)
+Microcervecería de
+cerveza artesanal0.500.500.50
+(REFORMADO [N. DE E. ADICIONADO], P.O. 17 DE JUNIO DE 2024)
+Sala de degustación
+para la venta exclusiva
+de cerveza artesanal0.400.400.40
 c).- Por el otorgamiento de permisos eventuales para el funcionamiento de establecimientos para la venta y/o consumo de bebidas alcohólicas por día, se causarán derechos conforme a la siguiente:
 TARIFA
 GIROSCATEGORIA
@@ -68,3 +88,7 @@ Para muestras y degustaciones543
 Eventos deportivos, recreativos
 y artísticos20010050
 Eventos sociales502510
+(REFORMADO [N. DE E. ADICIONADO], P.O. 17 DE JUNIO DE 2024)
+Para muestras y
+degustación de cerveza
+artesanal en eventos543
