@@ -1,16 +1,14 @@
-(ADICIONADO, P.O. 14 DE SEPTIEMBRE DE 2020)
-Artículo 146 Bis B. Las Titulares o los Titulares de las Consejerías y Presidencias de los Consejos Electorales Distritales y Municipales, podrán ser removidos por el Consejo General, por incurrir en alguna de las siguientes causas:
-I. Realizar conductas que atenten contra la independencia e imparcialidad de la función electoral, o cualquier acción que genere o implique subordinación respecto de terceros;
-II. Tener notoria negligencia, ineptitud o descuido en el desempeño de las funciones o labores que deban realizar;
-III. Conocer de algún asunto o participar en algún acto para el cual se encuentren impedidos;
-IV. Realizar nombramientos, promociones o ratificaciones infringiendo las disposiciones generales correspondientes;
-V. Dejar de desempeñar injustificadamente las funciones o las labores que tenga a su cargo;
-VI. Utilizar las instalaciones de los Consejos Electorales para actividades que no sean eminentemente electorales;
-VII. Utilizar indebidamente para sí o por interpósita persona, la documentación e información que, por razón de su función, conozca o conserve bajo sus cuidados o a la cual tenga acceso, así como sustraer, destruir, ocultar o inutilizar la misma;
-VIII. Realizar actos de discriminación, acciones u omisiones que generen cualquier tipo de violencia, acoso sexual y/o laboral, amagos, malos tratos o expresar críticas ofensivas o injuriosas contra compañeras y compañeros, dentro o fuera de las horas de servicio;
-IX. Comprometer la seguridad de quien se encuentre en los Consejos;
-X. Presentarse al desempeño de sus labores bajo los influjos del alcohol, tóxicos, narcóticos o enervantes;
-XI. Emitir opinión pública que implique prejuzgar sobre un asunto de su conocimiento; y
-XII. Transgredir de manera grave o reiterada la presente Ley, los Lineamientos, criterios y formatos que emita el Instituto, así como cualquier otra disposición jurídica aplicable que dañe los principios rectores de la función electoral.
-Cuando las Presidentas o Presidentes, Consejeras o Consejeros Electorales faltaren injustificadamente a dos sesiones consecutivas del Consejo Distrital o Municipal del que forme parte, se procederá conforme a lo señalado en el artículo 150 de la presente Ley, llamando al suplente en orden de prelación.
-Si las Presidentas o Presidentes, Consejeras o Consejeros Electorales Distrital o Municipal consideran que hubo alguna afectación a sus derechos, podrá acudir a la Comisión de Quejas respectiva a efecto de que ésta revise el procedimiento descrito en el párrafo anterior.
+(REFORMADO Y REUBICADO [ANTES ARTÍCULO 146 BIS A], P.O. 30 DE AGOSTO DE 2024)
+Artículo 146 Bis B. Las infracciones señaladas en el artículo 146 Bis A serán sancionadas conforme a lo siguiente:
+I. Apercibimiento;
+II. Amonestación privada o pública; y
+III. Suspensión temporal sin goce de sueldo de hasta quince días.
+Para la individualización de las sanciones, una vez acreditada la existencia de una infracción y su imputación, se deberán tomar en cuenta entre otras, las siguientes circunstancias:
+I. La gravedad de la responsabilidad en que se incurra;
+II. La conveniencia de suprimir prácticas que infrinjan, en cualquier forma, las disposiciones de la presente Ley, en atención al bien jurídico tutelado, o las que se dicten con base en él;
+III. Las circunstancias de modo, tiempo y lugar de la infracción;
+IV. Los medios de ejecución;
+V. La reincidencia en el incumplimiento de obligaciones, y
+VI. En su caso el daño o perjuicio derivado del incumplimiento de obligaciones.
+Se considerará reincidente a la persona infractora que habiendo sido declarada responsable del incumplimiento de alguna de las infracciones a que se refiere este artículo, incurra nuevamente en la misma conducta infractora, aun cuando la conducta hubiese sido cometida en el proceso electoral inmediato anterior.
+El procedimiento sancionador correspondiente se desarrollara sujetándose a los lineamientos que emita el Instituto.
