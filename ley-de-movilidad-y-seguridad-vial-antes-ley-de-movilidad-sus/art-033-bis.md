@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE NOVIEMBRE DE 2024)
+Artículo 33 Bis. Las autoridades estatales y municipales, deberán proporcionar al Observatorio Ciudadano la información sobre el proceso de reglamentación de la movilidad, del transporte y del tránsito, los planes de desarrollo urbano, de ordenamiento territorial, los actos administrativos y autorizaciones de uso de suelo, así como las bases de datos que forman la plataforma de información correspondiente.
