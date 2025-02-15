@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 20 DE DICIEMBRE DE 2017)
-ARTICULO 92 BIS H.- Los servidores públicos adscritos al Órgano Interno de Control del Congreso y, en su caso, los profesionales contratados para la práctica de auditorías deberán guardar estricta reserva sobre la información y documentos que conozcan con motivo del desempeño de sus facultades así como de sus actuaciones y observaciones.
+(REFORMADO, P.O. 14 DE FEBRERO DE 2025)
+ARTICULO 92 BIS H.- Las servidoras y los servidores públicos adscritos al Órgano Interno de Control del Congreso y, en su caso, las profesionales y los profesionales contratados para la práctica de auditorías deberán guardar estricta reserva sobre la información y documentos que conozcan con motivo del desempeño de sus facultades así como de sus actuaciones y observaciones.

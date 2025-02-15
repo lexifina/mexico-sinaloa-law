@@ -8,7 +8,7 @@ V.- Cuidar que los dictámenes, propuestas, mociones, comunicados y demás escri
 VI.- Determinar y ordenar la aplicación de las sanciones derivadas de las conductas que atenten contra la disciplina parlamentaria;
 VII.- Designar las comisiones de atención ciudadana y de cortesía parlamentaria que se requieran, cuidando siempre su integración plural; y
 VIII.- Desarrollar durante el último año de ejercicio, el proceso de entrega recepción previsto en la ley de la materia;
-(ADICIONADA, P.O. 2 DE AGOSTO DE 2017)
-IX.- Expedir la convocatoria aprobada por el Pleno a propuesta de la Junta de Coordinación Política para la designación de los titulares de los Órganos Internos de Control de los órganos a los que la Constitución Política del Estado de Sinaloa les reconoce autonomía y que ejerzan recursos públicos; y
+(REFORMADA, P.O. 14 DE FEBRERO DE 2025)
+IX.- Expedir la convocatoria aprobada por el Pleno a propuesta de la Junta de Coordinación Política para la designación de las personas titulares de los Órganos Internos de Control de los órganos a los que la Constitución Política del Estado de Sinaloa les reconoce autonomía y que ejerzan recursos públicos; y
 (REFORMADA, P.O. 2 DE AGOSTO DE 2017)
 X.- Las demás que le confiera esta Ley, los reglamentos y los acuerdos parlamentarios del Congreso.

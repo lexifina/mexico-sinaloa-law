@@ -1,2 +1,2 @@
-(ADICIONADO, P.O. 3 DE JULIO DE 2020)
-ARTICULO 133 BIS E.- Durante las sesiones y reuniones públicas virtuales únicamente podrán efectuarse votaciones nominales, debiéndose asentar en las actas correspondientes el sentido de los votos emitidos por las diputadas y los diputados. En las sesiones públicas virtuales no podrán agendarse para su votación mediante cedula procedimientos en los que se ejerzan facultades de nombramiento a cargo del Congreso.
+(REFORMADO, P.O. 14 DE FEBRERO DE 2025)
+ARTICULO 133 BIS E.- Durante las sesiones y reuniones públicas virtuales únicamente podrán efectuarse votaciones nominales, debiéndose asentar en las actas correspondientes el sentido de los votos emitidos por las diputadas y los diputados. En las sesiones públicas virtuales no podrán agendarse para su votación mediante cédula procedimientos en los que se ejerzan facultades de nombramiento a cargo del Congreso.
