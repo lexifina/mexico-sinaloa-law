@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE FEBRERO DE 2025)
+Artículo 22 Bis G. En los casos donde (sic) Secretaría, identifique y documente alguna circunstancia de procedencia de la Alerta de Violencia de Género contra las mujeres, se podrá emitir por el Gobierno del Estado, a través de la Secretaría General de Gobierno, sin que se requiera la conformación del Grupo Interinstitucional y Multidisciplinario.
+En aquellos casos, donde el Grupo Interinstitucional y Multidisciplinario no culmine el Informe de conclusiones en el periodo establecido, la Secretaría, realizará el informe correspondiente y, en su caso, podrá emitir la Alerta de Violencia de Género contra las mujeres.
