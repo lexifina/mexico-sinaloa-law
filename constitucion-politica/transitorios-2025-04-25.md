@@ -1,0 +1,3 @@
+P.O. 25 DE ABRIL DE 2025.
+[N. DE E. TRANSITORIO DEL "DECRETO NÚMERO 72 DEL H. CONGRESO DEL ESTADO.- POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO DE SINALOA.
+ARTÍCULO ÚNICO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
