@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 16 DE JULIO DE 2025)
+ARTÍCULO 64 BIS.- Las personas físicas o morales que se dediquen a la acuacultura comercial, de fomento, didáctica y laboratorios de producción acuícola para poder sembrar y cosechar en sus granjas o establecimientos acuícolas especies de recursos pesqueros o acuícolas, deberán contar con los permisos de siembra y notificación de cosecha emitido por el CESASIN y validado por la SPyA.
+La mecánica operativa de todo lo relacionado con los permisos de siembra y cosecha se establecerán mediante un comité conformado por la SPyA, STRC y el CESASIN, dicha mecánica se publicará en el Periódico Oficial "El Estado de Sinaloa" antes del inicio de cada ciclo acuícola.
