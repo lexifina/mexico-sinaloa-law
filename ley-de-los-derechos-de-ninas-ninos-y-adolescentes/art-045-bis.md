@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 1 DE OCTUBRE DE 2025)
+Artículo 45 Bis. Las autoridades implementarán mecanismos de prevención y atención de manera temprana y especial sobre las adicciones, el suicidio y cualquier trastorno que implique riesgo a la salud mental en niñas, niños y adolescentes, con base en lo que establece la Ley General de Salud y la Ley de Salud Mental del Estado de Sinaloa.
+De igual manera, desarrollarán programas dentro de los planteles educativos que incluyan campañas, estrategias y acciones de difusión, promoción y orientación sobre el cuidado de la salud mental, a través del uso de las Tecnologías de la Información y Comunicación, conocimiento y aprendizaje digital.
+Dichas implementaciones deberán contar con accesibilidad y diseño universal para niñas, niños y adolescentes con discapacidades físicas, hablantes de lenguas indígenas y afrodescendientes.

@@ -19,5 +19,6 @@ XVI. Derecho de asociación y reunión;
 XVII. Derecho a la intimidad;
 XVIII. Derecho a la seguridad jurídica y al debido proceso;
 XIX. Derechos de niñas, niños y adolescentes migrantes; y,
-XX. Derecho de acceso a las Tecnologías de la Información y Comunicación, así como a los servicios de radiodifusión y telecomunicaciones.
+(REFORMADA, P.O. 1 DE OCTUBRE DE 2025)
+XX. Derecho de acceso a las Tecnologías de la Información y Comunicación, así como a los servicios de radiodifusión y telecomunicaciones, incluido el de banda ancha e Internet, con las medidas de advertencia sobre contenidos que puedan causar impacto a la salud mental y perjudicar al libre desarrollo de la personalidad en niñas, niños y adolescentes, de conformidad con lo establecido en la Ley en Materia de Telecomunicaciones y Radiodifusión.
 Las autoridades estatales y municipales, en el ámbito de sus respectivas competencias, adoptarán las medidas necesarias para garantizar estos derechos a todas las niñas, niños y adolescentes sin discriminación de ningún tipo o condición.
