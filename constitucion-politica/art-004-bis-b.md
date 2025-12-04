@@ -10,6 +10,8 @@ La ley determinará las actividades a realizar para el logro progresivo de este 
 III. Toda persona tiene derecho a un medio ambiente sano para su desarrollo y bienestar. El Estado garantizará el respeto a este derecho. El daño y deterioro ambiental generará responsabilidad para quien lo provoque, en términos de lo dispuesto por la Ley.
 (REFORMADO, P.O. 13 DE SEPTIEMBRE DE 2013)
 La Ley determinará las medidas que deberán llevar a cabo las autoridades para protegerlo, preservarlo, restaurarlo y mejorarlo.
+(ADICIONADO, P.O. 3 DE DICIEMBRE DE 2025)
+Queda prohibido el maltrato a los animales. El Estado garantizará la protección, el trato adecuado, la conservación y el cuidado de los animales, en los términos que señale la ley.
 (REFORMADO [N. DE E. ESTE PÁRRAFO], P.O. 14 DE FEBRERO DE 2025)
 IV. Las y los habitantes en el Estado tienen el derecho a disfrutar una vida libre de violencias, el Estado tiene deberes reforzados de protección con las mujeres, adolescentes, niñas y niños. La ley establecerá las bases de la actuación de las autoridades para prevenir las violencias y atender a las personas que sufran de ella, así como generar una cultura que permita eliminar las causas y patrones que la generan, poniendo especial atención en la erradicación de la violencia familiar.
 (ADICIONADO, P.O. 14 DE FEBRERO DE 2025)
