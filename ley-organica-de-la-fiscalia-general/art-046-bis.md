@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 31 DE DICIEMBRE DE 2025)
+Artículo 46 Bis. Se crea la Unidad de Investigación Cibernética como una corporación policial especializada auxiliar del Ministerio Público, responsable de la prevención, atención, reacción e investigación de los incidentes y delitos que se cometen a través de medios electrónicos o tecnológicos, cuya finalidad es la de incrementar la seguridad de la red pública de internet y proteger la integridad física y patrimonial de la ciudadanía.
