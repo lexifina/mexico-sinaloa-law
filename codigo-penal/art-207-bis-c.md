@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 2 DE FEBRERO DE 2026)
+ARTICULO 207 Bis C. Comete el delito de robo equiparado de vehículos, quien tras arrendar un vehículo automotor terrestre, no devuelva el vehículo arrendado sin causa justificada, sin el consentimiento del arrendador; al responsable se le impondrá de cuatro a ocho años de prisión y de cien a trescientos días multa.
+No se considerará como robo equiparado de vehículos cuando el arrendatario, por causas justificadas, no pueda devolver el vehículo en el tiempo estipulado, sujetándose al pago de la compensación previamente acordada con el arrendador.
+La pena prevista en este artículo se aumentará hasta en una mitad más, si el sujeto activo del delito de robo equiparado de vehículos, además incurre en alguna de las conductas previstas en las fracciones I a VII del artículo 207 Bis, de este Código.
