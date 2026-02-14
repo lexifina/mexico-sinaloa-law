@@ -1,0 +1,4 @@
+P.O. 13 DE FEBRERO DE 2026.
+[N. DE E. ARTÍCULOS TRANSITORIOS DEL "DECRETO NÚMERO 376 DEL H. CONGRESO DEL ESTADO.- POR E L QUE SE ADICIONAN DISPOSICIONES A LA LEY DE LOS TRABAJADORES AL SERVICIO DEL ESTADO DE SINALOA Y A LA LEY DE RESPONSABILIDADES ADMINISTRATIVAS DEL ESTADO DE SINALOA".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+ARTÍCULO SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
