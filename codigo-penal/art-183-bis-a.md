@@ -1,2 +1,3 @@
-(ADICIONADO, P.O. 12 DE AGOSTO DE 2022)
-ARTICULO 183 BIS A. Al responsable del delito de abuso sexual cometido en contra de una persona menor de dieciocho años de edad y mayor de quince años de edad sin su consentimiento expreso, voluntario, genuino y deseado, se le impondrá una pena de nueve a quince años de prisión y de doscientos a trescientos cincuenta días multa.
+(REFORMADO, P.O. 13 DE MAYO DE 2026)
+ARTICULO 183 Bis A. A quien cometa el delito de abuso sexual en una persona menor de dieciocho años de edad o en persona que no tenga la capacidad de comprender el significado del hecho, aun con su consentimiento, o que por cualquier causa no pueda resistirlo o la obligue a ejecutarlo en sí o en otra persona, se le impondrá una pena de seis a trece años de prisión y hasta quinientos días multa.
+Si se hiciera uso de violencia, la pena se aumentará en una mitad más en su mínimo y máximo.
