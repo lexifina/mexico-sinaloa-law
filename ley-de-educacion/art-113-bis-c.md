@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 17 DE JULIO DE 2026)
+Artículo 113 Bis C. La autoridad educativa estatal en el ámbito de su competencia, promoverá la formación y capacitación permanente de personal docente y directivo con conocimientos básicos sobre salud mental, aprendizaje socioemocional y autocuidado, así como trastornos del neurodesarrollo, incluido el espectro autista, que permitan identificar signos de alerta y la canalización a los servicios especializados.
+Asimismo, desarrollará programas y cursos para brindar a los educandos conocimientos básicos sobre salud mental, aprendizaje socioemocional y autocuidado.

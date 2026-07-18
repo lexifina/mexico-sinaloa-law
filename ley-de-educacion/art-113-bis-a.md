@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE JULIO DE 2026)
+Artículo 113 Bis A. Para tal efecto implementará campañas de difusión, promoción, concientización y sensibilización a través del uso de las Tecnologías de la Información y Comunicación, conocimiento y aprendizaje digital, con accesibilidad y diseño universal para niñas, niños y adolescentes con discapacidades físicas, hablantes de lenguas indígenas y afrodescendientes.

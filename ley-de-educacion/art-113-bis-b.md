@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 17 DE JULIO DE 2026)
+Artículo 113 Bis B. Las escuelas de educación básica y media superior para la atención de la salud mental de los educandos deberán contar con áreas de atención, personal especializado en psicología, trabajo social o áreas afines, de acuerdo a la disponibilidad presupuestaria.
+Implementarán evaluaciones psicoemocionales periódicas con base en protocolos científicos y con consentimiento informado de madres, padres o personas tutoras. Los resultados tendrán carácter confidencial, preventivo y no punitivo, y se utilizarán exclusivamente para orientación y canalización a los servicios de salud correspondientes para su atención especializada.
+Asimismo, deberán integrar equipos de respuesta inmediata para situaciones de crisis, capacitados en técnicas para atenuar su escalamiento.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 17 DE JULIO DE 2026)
+Artículo 113 Bis. La autoridad educativa estatal se coordinará con la Secretaría de Salud y el Instituto Sinaloense de Salud Mental, ofrecerá servicios de atención integral a la salud mental de los educandos, mediante la implementación de acciones, programas o protocolos permanentes de promoción, prevención, detección temprana, atención y canalización de casos que requieran intervención especializada, conforme a la Ley General de Salud y la Ley de Salud Mental del Estado de Sinaloa.
