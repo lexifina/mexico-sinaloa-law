@@ -1,0 +1,8 @@
+P.O. 22 DE JULIO DE 2026.
+[N. DE E. Transitorios DEL "DECRETO NÚMERO: 433 POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE SEGURIDAD PÚBLICA DEL ESTADO DE SINALOA".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+ARTÍCULO SEGUNDO. El Ejecutivo del Estado y los Ayuntamientos de los Municipios contarán con un plazo máximo de 120 días naturales, contados a partir de la entrada en vigor del presente Decreto, para realizar las adecuaciones correspondientes en los Reglamentos y ordenamientos de sus respectivas competencias, a efecto de dar cumplimiento al presente Decreto.
+ARTÍCULO TERCERO. La Secretaría de Seguridad Pública del Estado de Sinaloa, contará con un plazo máximo de 60 días naturales, contados a partir de la entrada en vigor del presente Decreto para crear la Unidad de Género.
+ARTÍCULO CUARTO. La Secretaría de Seguridad Pública del Estado de Sinaloa, dentro del plazo que no deberá exceder de 120 días naturales, a partir de la creación de la Unidad de Género, deberá realizar las adecuaciones correspondientes a su Reglamento Interior para establecer las atribuciones de dicha Unidad.
+ARTÍCULO QUINTO. Los Ayuntamientos de los Municipios, contará con un plazo máximo de 60 días naturales, contados a partir de la entrada en vigor del presente Decreto para crear las Unidades de Género, correspondientes.
+ARTÍCULO SEXTO. Los Ayuntamientos de los Municipios, dentro del plazo que no deberá exceder de 120 días naturales, a partir de la creación de la Unidad de Género, deberán realizar las adecuaciones correspondientes a su regulación interna para establecer las atribuciones de dicha Unidad.

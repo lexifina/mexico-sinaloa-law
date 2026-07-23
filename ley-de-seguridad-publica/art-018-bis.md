@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 22 DE JULIO DE 2026)
+Artículo 18 Bis.- La Secretaría y los Municipios contarán dentro de la estructura de su Policía Estatal Preventiva, y de las Policías Preventivas Municipales, con una Unidad de Género encargada de la atención de violencia familiar y de género con perspectiva de derechos humanos, cuyo objetivo principal es garantizar la seguridad y el bienestar de las mujeres, así como promover la igualdad de género en el ámbito de la seguridad pública.
