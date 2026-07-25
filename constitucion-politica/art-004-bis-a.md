@@ -5,9 +5,12 @@ I. Toda persona tiene derecho a que se respete su vida. El Estado tutela el dere
 II. Queda prohibida la pena de muerte y la de prisión perpetua.
 III. Nadie será sometido sin su libre consentimiento a exámenes y experimentos médicos o científicos, respetándosele en todo tiempo el derecho a decidir sobre la difusión de los resultados obtenidos.
 IV. Todo ser humano tiene derecho a un nombre propio y a los apellidos de sus padres o al de uno de ellos. La ley regulará la forma de asegurar este derecho.
-V. Todo individuo tiene derecho a adecuar su comportamiento a convicciones personales de orden religioso, ético, humanitario o de una naturaleza afín.
-VI. Todo individuo tiene derecho a buscar, recibir y difundir informaciones e ideas de toda índole, salvo los casos de excepción que determine la ley orgánica para asegurar el respeto a los derechos o a la reputación de los demás y la protección de la seguridad nacional, el orden público o la salud pública.
-VII. Cuando se trate de datos personales en información creada, administrada o en posesión de las entidades públicas, el individuo tendrá libre acceso a todo registro, archivo o banco de datos en que se contengan referencias a su persona, pudiendo requerir la actualización, rectificación, confidencialidad o supresión de esta información si lesiona o restringe alguno de sus derechos.
+(REFORMADA, P.O. 24 DE JULIO DE 2026)
+V. Toda persona tiene derecho a adecuar su comportamiento a convicciones personales de orden religioso, ético, humanitario o de una naturaleza afín.
+(REFORMADA, P.O. 24 DE JULIO DE 2026)
+VI. Toda persona tiene derecho a buscar, recibir y difundir informaciones e ideas de toda índole, salvo los casos de excepción que determine la ley orgánica para asegurar el respeto a los derechos o a la reputación de los demás y la protección de la seguridad nacional, el orden público o la salud pública.
+(REFORMADA, P.O. 24 DE JULIO DE 2026)
+VII. Cuando se trate de datos personales en información creada, administrada o en posesión de las entidades públicas, toda persona tendrá libre acceso a todo registro, archivo o banco de datos en que se contengan referencias a su persona, pudiendo requerir la actualización, rectificación, confidencialidad o supresión de esta información si lesiona o restringe alguno de sus derechos.
 VIII. Toda persona afectada por informaciones emitidas en su perjuicio a través de medios de difusión y que se dirijan al público en general, tiene derecho a efectuar por el mismo órgano de difusión y en condiciones similares a la difusión efectuada, su rectificación o respuesta en los términos que establezca la ley.
 (REFORMADA, P.O. 1 DE JULIO DE 2020)
 IX. Los ciudadanos y ciudadanas tienen derecho a acceder, en condiciones de igualdad y de paridad de género en el Estado y los Municipios, a las funciones y cargos públicos de conformidad con la Ley del Servicio Civil de Carrera. De igual manera tienen derecho a postularse y a ser designados, en su caso, para alguna de las candidaturas de elección popular, en concordancia con los principios de igualdad y de paridad de género, y en los términos que la ley determine.

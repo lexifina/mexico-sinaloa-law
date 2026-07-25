@@ -6,7 +6,8 @@ Art. 109 Bis D. Se instituye el Sistema Estatal Anticorrupción como instancia d
 Para el cumplimiento de su objeto se sujetará a las siguientes bases mínimas:
 (REFORMADA, P.O. 6 DE FEBRERO DE 2026)
 I. El Sistema contará con un Comité Coordinador que estará integrado por las personas titulares de la Auditoría Superior del Estado; de la Fiscalía Especializada en Combate a la Corrupción; de la Secretaría del Ejecutivo Estatal responsable del control interno; por la persona titular de la presidencia del Tribunal de Justicia Administrativa del Estado; así como por una persona representante del Tribunal de Disciplina Judicial y otra del Comité de Participación Ciudadana.
-II. El Comité de Participación Ciudadana del Sistema deberá integrarse por cinco ciudadanos que se hayan destacado por su contribución a la transparencia, la rendición de cuentas o el combate a la corrupción y serán designados en los términos que establezca la ley.
+(REFORMADA, P.O. 24 DE JULIO DE 2026)
+II. El Comité de Participación Ciudadana del Sistema deberá integrarse por cinco ciudadanas y ciudadanos que se hayan destacado por su contribución a la transparencia, la rendición de cuentas o el combate a la corrupción y serán designados en los términos que establezca la ley.
 III. Corresponderá al Comité Coordinador del Sistema, en los términos que determine la ley:
 a) El establecimiento de mecanismos de coordinación con el Sistema Nacional Anticorrupción.
 b) El diseño y promoción de políticas integrales en materia de fiscalización y control de recursos públicos, de prevención control y disuasión de faltas administrativas y hechos de corrupción, en especial sobre las causas que los generan.
