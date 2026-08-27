@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 26 DE AGOSTO DE 2026)
+Artículo 22 Bis. La Secretaría será la encargada de elaborar la Estrategia Estatal de Separación de Residuos con el objetivo de maximizar su aprovechamiento, en coordinación con los municipios.
+La Estrategia estará integrada por líneas de acción que promuevan la separación en la fuente de residuos en orgánicos, inorgánicos y aquellos susceptibles de ser valorizados en los términos de esta Ley; dicha separación podrá contemplar la separación por tipo de material a fin de promover un mayor acopio de residuos.
+La Estrategia también contemplará acciones de educación ambiental y la promoción de un consumo responsable.
+Asimismo, participarán a invitación de la Secretaría, representantes del sector privado, del sector académico, de organizaciones de la sociedad civil, así como a integrantes del Poder Legislativo y demás actores vinculados con la materia, a efecto de que aporten opiniones, propuestas, conocimientos técnicos o acompañamiento en las acciones relacionadas con dicha Estrategia.

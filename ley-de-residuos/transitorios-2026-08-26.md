@@ -1,0 +1,7 @@
+P.O. 26 DE AGOSTO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 457 DEL H. CONGRESO DEL ESTADO.- POR EL QUE SE REFORMAN, ADICIONA Y DEROGAN DIVERSAS DISPOSICIONES DE LA LEY DE RESIDUOS, Y DE LA LEY AMBIENTAL PARA EL DESARROLLO SUSTENTABLE, AMBAS DEL ESTADO DE SINALOA".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+ARTÍCULO SEGUNDO. El Ejecutivo del Estado, a través de la Secretaría de Bienestar y Desarrollo Sustentable del Estado de Sinaloa deberá actualizar toda normatividad y reglamentación secundaria que se requiera, a efectos de atender lo establecido en el presente Decreto en un plazo no mayor a 180 días naturales, posteriores a la entrada en vigor.
+ARTÍCULO TERCERO. La Secretaría de Bienestar y Desarrollo Sustentable del Estado de Sinaloa deberá elaborar, en coordinación con los Municipios, la Estrategia Estatal de Separación de Residuos en un plazo no mayor a 180 días naturales posteriores al inicio de vigencia del Decreto y publicarla en el Periódico Oficial "El Estado de Sinaloa".
+ARTÍCULO CUARTO. La Secretaría de Bienestar y Desarrollo Sustentable del Estado de Sinaloa, deberá expedir el formato a que se refiere el artículo 41 Bis de la Ley de Residuos del Estado de Sinaloa, en un plazo no mayor de 90 días naturales, contados a partir del inicio de vigencia del presente Decreto.
+ARTÍCULO QUINTO. Se derogan todas las disposiciones que contravengan al presente Decreto.
