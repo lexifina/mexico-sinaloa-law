@@ -1,0 +1,4 @@
+P.O. 19 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO NÚMERO 420 DEL H. CONGRESO DEL ESTADO.- QUE REFORMA EL ARTÍCULO 301 DEL CÓDIGO FAMILIAR Y ADICIONA LOS PÁRRAFOS TERCERO Y CUARTO AL ARTÍCULO 101, DE LA LEY DE SALUD, AMBAS DEL ESTADO DE SINALOA".]
+ARTÍCULO PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial "El Estado de Sinaloa".
+ARTÍCULO SEGUNDO. La Secretaría de Salud del Poder Ejecutivo del Estado de Sinaloa dentro de los sesenta días hábiles siguientes al inicio de vigencia del presente Decreto, deberá publicar en el Periódico Oficial "El Estado de Sinaloa" el listado de instituciones públicas donde se realicen de forma gratuita a las mujeres el trámite para las tomas de las pruebas de los grupos sanguíneos y otros marcadores genéticos, así como el estudio del ácido desoxirribonucleico o análisis biológico molecular entre el hijo y el presunto padre.
