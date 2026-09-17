@@ -1,2 +1,3 @@
-(REFORMADO, P.O. 24 DE JULIO DE 2026)
-Art. 25 Bis. Las Diputadas y los Diputados en funciones podrán ser nuevamente electos hasta completar un máximo de cuatro periodos consecutivos de ejercicio. La postulación sólo podrá ser realizada por el mismo partido o por cualquiera de los partidos integrantes de la coalición que los hubiese postulado originalmente, salvo que el interesado haya renunciado o perdido su militancia antes de la mitad de su mandato. La ley establecerá los requisitos que deberán satisfacerse para una nueva postulación.
+(REFORMADO, P.O. 16 DE SEPTIEMBRE DE 2026)
+Art. 25 Bis. Las Diputadas y los Diputados en funciones no podrán ser reelectos para el periodo inmediato posterior al ejercicio de su mandato.
+Las Diputadas y los Diputados suplentes podrán ser electos para el período inmediato con el carácter de propietarios, siempre que no hubieren estado en el ejercicio, pero las diputadas y los diputados propietarios no podrán ser electos para el período inmediato con el carácter de suplentes.
