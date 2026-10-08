@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 7 DE OCTUBRE DE 2026)
+Artículo 13 Bis. Las autoridades estatales y municipales deberán implementar protocolos especializados para la detección temprana, atención psicológica, reinserción social y justicia restaurativa de niñas, niños y adolescentes víctimas de reclutamiento, en coordinación con el Sistema Estatal de Protección Integral de Niñas, Niños y Adolescentes, la Secretaría de Seguridad Pública, la Secretaría de Educación Pública y Cultura y la Fiscalía General del Estado.
