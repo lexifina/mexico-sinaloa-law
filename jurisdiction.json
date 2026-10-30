@@ -1,0 +1,11 @@
+{
+  "path": "mx-sin",
+  "code": "MX-SIN",
+  "name": "Sinaloa",
+  "level": "state",
+  "parent": "mx",
+  "repo": "https://github.com/lexifina/mexico-sinaloa-law",
+  "build": "built: constitution, codes and laws (153 ordenamientos, 1222 versions) from SCJN Legislación",
+  "language": "es",
+  "sources": 1
+}
